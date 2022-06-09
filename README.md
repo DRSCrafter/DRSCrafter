@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
+> Some people say that I never got over my obsession with Phil Collins.
+But take a look at me now.
 
 By the way, this joke is replaced by github every hour. via majik :)
