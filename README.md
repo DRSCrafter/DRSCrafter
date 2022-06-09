@@ -1,5 +1,5 @@
 <p align="center">
-<img src="./assets/banner.png" width="600"/>
+<img src="./assets/banner.png" width="450"/>
 </p>
 
 <h1><img src="./assets/hand.gif" width="50"/> G’day, fellow geeks</h1>
@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+> Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
 
 By the way, this joke is replaced by github every hour. via majik :)
