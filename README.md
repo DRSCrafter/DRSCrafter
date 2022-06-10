@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+> What do you call a duck that gets all A's? A wise quacker.
 
 By the way, this joke is replaced by github every hour. via majik :)
