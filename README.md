@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I burned 2000 calories today, I left my food in the oven for too long.
+> I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
 
 By the way, this joke is replaced by github every hour. via majik :)
