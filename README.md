@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a bee that lives in America? A USB.
+> Remember, the best angle to approach a problem from is the "try" angle.
 
 By the way, this joke is replaced by github every hour. via majik :)
