@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+> It’s hard to explain puns to kleptomaniacs, because they take everything literally.
 
 By the way, this joke is replaced by github every hour. via majik :)
