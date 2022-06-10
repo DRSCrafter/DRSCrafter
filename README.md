@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m on a whiskey diet. I’ve lost three days already.
+> What kind of award did the dentist receive? A little plaque.
 
 By the way, this joke is replaced by github every hour. via majik :)
