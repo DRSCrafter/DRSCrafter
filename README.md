@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I decided to sell my Hoover… well it was just collecting dust.
+> What did the calculator say to the student? You can count on me.
 
 By the way, this joke is replaced by github every hour. via majik :)
