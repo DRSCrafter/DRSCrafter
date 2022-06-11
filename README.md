@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+> What's orange and sounds like a parrot? A Carrot.
 
 By the way, this joke is replaced by github every hour. via majik :)
