@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don't buy flowers at a monastery. Because only you can prevent florist friars.
+> Why did the cookie cry?
+Because his mother was a wafer so long
 
 By the way, this joke is replaced by github every hour. via majik :)
