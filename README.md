@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+> Don't buy flowers at a monastery. Because only you can prevent florist friars.
 
 By the way, this joke is replaced by github every hour. via majik :)
