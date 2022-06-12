@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If two vegans are having an argument, is it still considered beef?
+> Have you heard of the band 1023MB? They haven't got a gig yet.
 
 By the way, this joke is replaced by github every hour. via majik :)
