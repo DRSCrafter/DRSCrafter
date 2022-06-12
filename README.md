@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How does a dyslexic poet write? Inverse.
+> Did you hear the one about the guy with the broken hearing aid? Neither did he.
 
 By the way, this joke is replaced by github every hour. via majik :)
