@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you do when you see a space man?
-Park your car, man.
+> So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
 
 By the way, this joke is replaced by github every hour. via majik :)
