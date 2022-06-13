@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> R.I.P. boiled water. You will be mist.
+> Why didn’t the orange win the race? It ran out of juice.
 
 By the way, this joke is replaced by github every hour. via majik :)
