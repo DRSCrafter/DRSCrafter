@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many tickles does it take to tickle an octopus? Ten-tickles!
+> What do you call a careful wolf? Aware wolf.
 
 By the way, this joke is replaced by github every hour. via majik :)
