@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I am terrified of elevators. I’m going to start taking steps to avoid them.
+> I asked a frenchman if he played video games. He said "Wii"
 
 By the way, this joke is replaced by github every hour. via majik :)
