@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do bees go to the bathroom?  The BP station.
+> Breaking news! Energizer Bunny arrested – charged with battery.
 
 By the way, this joke is replaced by github every hour. via majik :)
