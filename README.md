@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got fired from a florist, apparently I took too many leaves.
+> Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
 
 By the way, this joke is replaced by github every hour. via majik :)
