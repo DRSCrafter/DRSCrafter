@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why can't your nose be 12 inches long? Because then it'd be a foot!
+> Where do bees go to the bathroom?  The BP station.
 
 By the way, this joke is replaced by github every hour. via majik :)
