@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Breaking news! Energizer Bunny arrested – charged with battery.
+> The first time I got a universal remote control I thought to myself, "This changes everything"
 
 By the way, this joke is replaced by github every hour. via majik :)
