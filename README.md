@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Me and my mates are in a band called Duvet. We're a cover band.
+> How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
 
 By the way, this joke is replaced by github every hour. via majik :)
