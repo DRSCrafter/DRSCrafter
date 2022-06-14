@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Archaeology really is a career in ruins.
+> I broke my finger at work today, on the other hand I'm completely fine.
 
 By the way, this joke is replaced by github every hour. via majik :)
