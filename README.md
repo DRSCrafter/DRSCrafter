@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the worst part about being a cross-eyed teacher?
-
-They can't control their pupils.
+> Some people eat light bulbs. They say it's a nice light snack.
 
 By the way, this joke is replaced by github every hour. via majik :)
