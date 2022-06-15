@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you fix a broken pizza? With tomato paste.
+> Why did the cookie cry?
+Because his mother was a wafer so long
 
 By the way, this joke is replaced by github every hour. via majik :)
