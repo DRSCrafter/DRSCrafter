@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Leather is great for sneaking around because it's made of hide.
+> What is the best way to carve?
+Whittle by whittle.
 
 By the way, this joke is replaced by github every hour. via majik :)
