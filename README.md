@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the guy whose whole left side was cut off? He's all right now.
+> What does a female snake use for support? A co-Bra!
 
 By the way, this joke is replaced by github every hour. via majik :)
