@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a magician who has lost their magic? Ian.
+> How do hens stay fit? They always egg-cercise!
 
 By the way, this joke is replaced by github every hour. via majik :)
