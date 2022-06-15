@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Our wedding was so beautiful, even the cake was in tiers.
+> How do you fix a broken pizza? With tomato paste.
 
 By the way, this joke is replaced by github every hour. via majik :)
