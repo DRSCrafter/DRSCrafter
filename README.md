@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Hey, dad, did you get a haircut?" "No, I got them all cut."
+> Why can't a bicycle stand on its own? It's two-tired.
 
 By the way, this joke is replaced by github every hour. via majik :)
