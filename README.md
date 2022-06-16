@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How are false teeth like stars? They come out at night!
+> Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
 
 By the way, this joke is replaced by github every hour. via majik :)
