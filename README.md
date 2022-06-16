@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What happens to a frog's car when it breaks down? It gets toad.
+> My sea sickness comes in waves.
 
 By the way, this joke is replaced by github every hour. via majik :)
