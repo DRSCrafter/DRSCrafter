@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I wouldn't buy anything with velcro. It's a total rip-off.
+> The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
 
 By the way, this joke is replaced by github every hour. via majik :)
