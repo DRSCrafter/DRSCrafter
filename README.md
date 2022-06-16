@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a troublesome Canadian high schooler? A poutine.
+> What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
 
 By the way, this joke is replaced by github every hour. via majik :)
