@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+> I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
 
 By the way, this joke is replaced by github every hour. via majik :)
