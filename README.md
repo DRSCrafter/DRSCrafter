@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+> Parallel lines have so much in common. It’s a shame they’ll never meet.
 
 By the way, this joke is replaced by github every hour. via majik :)
