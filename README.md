@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a careful wolf? Aware wolf.
+> Why was the big cat disqualified from the race? Because it was a cheetah.
 
 By the way, this joke is replaced by github every hour. via majik :)
