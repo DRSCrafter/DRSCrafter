@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why can't your nose be 12 inches long? Because then it'd be a foot!
+> What do you call a careful wolf? Aware wolf.
 
 By the way, this joke is replaced by github every hour. via majik :)
