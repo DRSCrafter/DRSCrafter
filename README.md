@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+> What do you call an old snowman? Water.
 
 By the way, this joke is replaced by github every hour. via majik :)
