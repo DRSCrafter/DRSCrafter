@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where did Captain Hook get his hook? From a second hand store.
+> What do birds give out on Halloween? Tweets.
 
 By the way, this joke is replaced by github every hour. via majik :)
