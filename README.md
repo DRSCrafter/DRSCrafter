@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+> How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
 
 By the way, this joke is replaced by github every hour. via majik :)
