@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+> Shout out to my grandma, that's the only way she can hear.
 
 By the way, this joke is replaced by github every hour. via majik :)
