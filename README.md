@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do you never see elephants hiding in trees? Because they're so good at it.
+> I don't trust stairs. They're always up to something.
 
 By the way, this joke is replaced by github every hour. via majik :)
