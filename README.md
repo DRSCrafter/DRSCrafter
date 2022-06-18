@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s brown and sounds like a bell? Dung!
+> Why did the man put his money in the freezer? He wanted cold hard cash!
 
 By the way, this joke is replaced by github every hour. via majik :)
