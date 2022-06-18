@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+> It’s hard to explain puns to kleptomaniacs, because they take everything literally.
 
 By the way, this joke is replaced by github every hour. via majik :)
