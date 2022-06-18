@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the worker get fired from the orange juice factory? Lack of concentration.
+> Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
 
 By the way, this joke is replaced by github every hour. via majik :)
