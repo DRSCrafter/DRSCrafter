@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+> What did the piece of bread say to the knife? Butter me up.
 
 By the way, this joke is replaced by github every hour. via majik :)
