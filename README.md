@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the piece of bread say to the knife? Butter me up.
+> How do you make Lady Gaga cry? Poker face. 
 
 By the way, this joke is replaced by github every hour. via majik :)
