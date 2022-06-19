@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Pavlov's beard so soft?  Because he conditioned it.
+> Leather is great for sneaking around because it's made of hide.
 
 By the way, this joke is replaced by github every hour. via majik :)
