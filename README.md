@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What was a more important invention than the first telephone? The second one.
+> How much does a hipster weigh? An instagram.
 
 By the way, this joke is replaced by github every hour. via majik :)
