@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the girl smear peanut butter on the road? To go with the traffic jam.
+> What's black and white and read all over? The newspaper.
 
 By the way, this joke is replaced by github every hour. via majik :)
