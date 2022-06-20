@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> “My Dog has no nose.” “How does he smell?” “Awful”
+> Camping is intense.
 
 By the way, this joke is replaced by github every hour. via majik :)
