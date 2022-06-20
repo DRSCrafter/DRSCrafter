@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is this movie about? It is about 2 hours long.
+> What's the best thing about elevator jokes? They work on so many levels.
 
 By the way, this joke is replaced by github every hour. via majik :)
