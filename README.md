@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+> I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
 
 By the way, this joke is replaced by github every hour. via majik :)
