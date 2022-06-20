@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> Did you hear the joke about the wandering nun? She was a roman catholic.
 
 By the way, this joke is replaced by github every hour. via majik :)
