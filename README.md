@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two dyslexics walk into a bra.
+> Did you hear about the guy whose whole left side was cut off? He's all right now.
 
 By the way, this joke is replaced by github every hour. via majik :)
