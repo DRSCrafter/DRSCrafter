@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to be a banker, but I lost interest.
+> Where do cats write notes?
+Scratch Paper!
 
 By the way, this joke is replaced by github every hour. via majik :)
