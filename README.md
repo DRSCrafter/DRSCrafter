@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the one about the giant pickle?  He was kind of a big dill.
+> I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
 
 By the way, this joke is replaced by github every hour. via majik :)
