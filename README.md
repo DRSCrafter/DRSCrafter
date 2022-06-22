@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It doesn't matter how much you push the envelope. It will still be stationary.
+> I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
 
 By the way, this joke is replaced by github every hour. via majik :)
