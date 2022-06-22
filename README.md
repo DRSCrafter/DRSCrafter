@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+> A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
 
 By the way, this joke is replaced by github every hour. via majik :)
