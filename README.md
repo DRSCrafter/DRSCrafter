@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "What time is it?" I don't know... it keeps changing.
+> Why did the belt go to prison? He held up a pair of pants!
 
 By the way, this joke is replaced by github every hour. via majik :)
