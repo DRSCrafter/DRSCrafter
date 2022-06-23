@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What does a pirate pay for his corn? A buccaneer!
+> My boss told me to have a good day. So I went home...
 
 By the way, this joke is replaced by github every hour. via majik :)
