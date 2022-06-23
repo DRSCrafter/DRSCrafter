@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+> In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
 
 By the way, this joke is replaced by github every hour. via majik :)
