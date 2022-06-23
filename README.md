@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+> What did the Buffalo say to his little boy when he dropped him off at school? Bison.
 
 By the way, this joke is replaced by github every hour. via majik :)
