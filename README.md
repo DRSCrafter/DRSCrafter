@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the scarecrow win an award? Because he was outstanding in his field.
+> You will never guess what Elsa did to the balloon. She let it go.
 
 By the way, this joke is replaced by github every hour. via majik :)
