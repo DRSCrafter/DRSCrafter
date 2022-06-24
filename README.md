@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sore throats are a pain in the neck!
+> Where do hamburgers go to dance? The meat-ball.
 
 By the way, this joke is replaced by github every hour. via majik :)
