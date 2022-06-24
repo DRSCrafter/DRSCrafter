@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the best way to carve?
-Whittle by whittle.
+> I went to a Foo Fighters Concert once... It was Everlong...
 
 By the way, this joke is replaced by github every hour. via majik :)
