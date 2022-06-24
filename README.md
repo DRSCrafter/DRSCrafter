@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I went to a Foo Fighters Concert once... It was Everlong...
+> It takes guts to be an organ donor.
 
 By the way, this joke is replaced by github every hour. via majik :)
