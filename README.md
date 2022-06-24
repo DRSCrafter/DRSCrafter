@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+> A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
 
 By the way, this joke is replaced by github every hour. via majik :)
