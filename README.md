@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "I'm sorry." "Hi sorry, I'm dad"
+> What kind of dinosaur loves to sleep? A stega-snore-us.
 
 By the way, this joke is replaced by github every hour. via majik :)
