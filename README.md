@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+> What is bread's favorite number?  Leaven.
 
 By the way, this joke is replaced by github every hour. via majik :)
