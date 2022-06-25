@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+> I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
 
 By the way, this joke is replaced by github every hour. via majik :)
