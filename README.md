@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you get when you cross a chicken with a skunk? A fowl smell!
+> "I'm sorry." "Hi sorry, I'm dad"
 
 By the way, this joke is replaced by github every hour. via majik :)
