@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+> Why did the belt go to prison? He held up a pair of pants!
 
 By the way, this joke is replaced by github every hour. via majik :)
