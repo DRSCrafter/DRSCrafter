@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+> My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
 
 By the way, this joke is replaced by github every hour. via majik :)
