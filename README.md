@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do bears have hairy coats? Fur protection.
+> Why do cows wear bells? Because their horns don't work.
 
 By the way, this joke is replaced by github every hour. via majik :)
