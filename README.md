@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are skeletons so calm? Because nothing gets under their skin.
+> I used to work in a shoe recycling shop. It was sole destroying.
 
 By the way, this joke is replaced by github every hour. via majik :)
