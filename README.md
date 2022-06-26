@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+> Why are skeletons so calm? Because nothing gets under their skin.
 
 By the way, this joke is replaced by github every hour. via majik :)
