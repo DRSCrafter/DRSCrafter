@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I decided to sell my Hoover… well it was just collecting dust.
+> I went to the zoo the other day, there was only one dog in it. It was a shitzu.
 
 By the way, this joke is replaced by github every hour. via majik :)
