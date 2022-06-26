@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do hens stay fit? They always egg-cercise!
+> I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
 
 By the way, this joke is replaced by github every hour. via majik :)
