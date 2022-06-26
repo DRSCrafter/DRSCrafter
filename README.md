@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work in a shoe recycling shop. It was sole destroying.
+> Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
 
 By the way, this joke is replaced by github every hour. via majik :)
