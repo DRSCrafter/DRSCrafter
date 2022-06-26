@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Dad, I'm cold."
-"Go stand in the corner, I hear it's 90 degrees."
+> I decided to sell my Hoover… well it was just collecting dust.
 
 By the way, this joke is replaced by github every hour. via majik :)
