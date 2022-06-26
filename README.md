@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you do on a remote island? Try and find the TV island it belongs to.
+> Which is the fastest growing city in the world? Dublin'
 
 By the way, this joke is replaced by github every hour. via majik :)
