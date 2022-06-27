@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of magic do cows believe in? MOODOO.
+> A man tried to sell me a coffin today. I told him that's the last thing I need.
 
 By the way, this joke is replaced by github every hour. via majik :)
