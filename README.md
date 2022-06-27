@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+> I started a new business making yachts in my attic this year...the sails are going through the roof
 
 By the way, this joke is replaced by github every hour. via majik :)
