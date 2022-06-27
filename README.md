@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man tried to sell me a coffin today. I told him that's the last thing I need.
+> My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
 
 By the way, this joke is replaced by github every hour. via majik :)
