@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+> Dad I’m hungry’ … ‘Hi hungry I’m dad
 
 By the way, this joke is replaced by github every hour. via majik :)
