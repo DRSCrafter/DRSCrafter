@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a magician who has lost their magic? Ian.
+> Why did the miner get fired from his job? He took it for granite...
 
 By the way, this joke is replaced by github every hour. via majik :)
