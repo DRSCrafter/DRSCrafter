@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+> Why are ghosts bad liars? Because you can see right through them!
 
 By the way, this joke is replaced by github every hour. via majik :)
