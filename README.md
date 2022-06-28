@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+> What did the calculator say to the student? You can count on me.
 
 By the way, this joke is replaced by github every hour. via majik :)
