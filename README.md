@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Q: What did the spaghetti say to the other spaghetti?
-A: Pasta la vista, baby!
+> Want to hear a joke about construction? Nah, I'm still working on it.
 
 By the way, this joke is replaced by github every hour. via majik :)
