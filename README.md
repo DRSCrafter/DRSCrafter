@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What creature is smarter than a talking parrot? A spelling bee.
+> What happens when you anger a brain surgeon? They will give you a piece of your mind.
 
 By the way, this joke is replaced by github every hour. via majik :)
