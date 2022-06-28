@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Want to hear a joke about construction? Nah, I'm still working on it.
+> What does a female snake use for support? A co-Bra!
 
 By the way, this joke is replaced by github every hour. via majik :)
