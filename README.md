@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+> Milk is also the fastest liquid on earth – its pasteurized before you even see it
 
 By the way, this joke is replaced by github every hour. via majik :)
