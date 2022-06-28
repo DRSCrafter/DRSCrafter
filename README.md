@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the big flower say to the littler flower? Hi, bud!
+> What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
 
 By the way, this joke is replaced by github every hour. via majik :)
