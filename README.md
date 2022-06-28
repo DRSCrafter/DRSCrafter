@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What does a female snake use for support? A co-Bra!
+> What did the calculator say to the student? You can count on me.
 
 By the way, this joke is replaced by github every hour. via majik :)
