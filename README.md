@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are ghosts bad liars? Because you can see right through them!
+> I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
 
 By the way, this joke is replaced by github every hour. via majik :)
