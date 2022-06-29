@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why didn’t the skeleton cross the road? Because he had no guts.
+> What did the beaver say to the tree? It's been nice gnawing you.
 
 By the way, this joke is replaced by github every hour. via majik :)
