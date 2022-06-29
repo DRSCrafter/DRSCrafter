@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+> Why are pirates called pirates? Because they arrr!
 
 By the way, this joke is replaced by github every hour. via majik :)
