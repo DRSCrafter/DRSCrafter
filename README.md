@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the one about the guy with the broken hearing aid? Neither did he.
+> When my wife told me to stop impersonating a flamingo, I had to put my foot down.
 
 By the way, this joke is replaced by github every hour. via majik :)
