@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+> Why do bees have sticky hair? Because they use honey combs!
 
 By the way, this joke is replaced by github every hour. via majik :)
