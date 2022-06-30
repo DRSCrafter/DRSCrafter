@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How can you tell a vampire has a cold? They start coffin.
+> What did the 0 say to the 8? Nice belt.
 
 By the way, this joke is replaced by github every hour. via majik :)
