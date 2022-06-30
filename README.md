@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> ‘Put the cat out’ … ‘I didn’t realize it was on fire
+> Why did the barber win the race? He took a short cut.
 
 By the way, this joke is replaced by github every hour. via majik :)
