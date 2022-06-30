@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+> “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
 
 By the way, this joke is replaced by github every hour. via majik :)
