@@ -61,10 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
-
-“Sure thing” the bartender replies and asks “but what’s with the big pause?” 
-
-The panda holds up his hands and says “I was born with them”
+> How do you steal a coat? You jacket.
 
 By the way, this joke is replaced by github every hour. via majik :)
