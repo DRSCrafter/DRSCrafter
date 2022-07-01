@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to be addicted to soap, but I'm clean now.
+> Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
 
 By the way, this joke is replaced by github every hour. via majik :)
