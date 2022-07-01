@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+> I used to be addicted to soap, but I'm clean now.
 
 By the way, this joke is replaced by github every hour. via majik :)
