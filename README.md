@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got fired from a florist, apparently I took too many leaves.
+> What lies at the bottom of the ocean and twitches? A nervous wreck.
 
 By the way, this joke is replaced by github every hour. via majik :)
