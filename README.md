@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+> How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
 
 By the way, this joke is replaced by github every hour. via majik :)
