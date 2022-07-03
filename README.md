@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Someone broke into my house last night and stole my limbo trophy. How low can you go?
+> What did the big flower say to the littler flower? Hi, bud!
 
 By the way, this joke is replaced by github every hour. via majik :)
