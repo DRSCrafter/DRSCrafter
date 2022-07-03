@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was in an 80's band called the prevention. We were better than the cure.
+> What do you call a guy lying on your doorstep? Matt.
 
 By the way, this joke is replaced by github every hour. via majik :)
