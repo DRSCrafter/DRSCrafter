@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+> Did you hear that David lost his ID in prague? Now we just have to call him Dav.
 
 By the way, this joke is replaced by github every hour. via majik :)
