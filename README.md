@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+> Why can't your nose be 12 inches long? Because then it'd be a foot!
 
 By the way, this joke is replaced by github every hour. via majik :)
