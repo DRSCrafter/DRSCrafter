@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> There's not really any training for garbagemen. They just pick things up as they go.
+> I couldn't get a reservation at the library. They were completely booked.
 
 By the way, this joke is replaced by github every hour. via majik :)
