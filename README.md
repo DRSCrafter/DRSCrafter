@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When do doctors get angry? When they run out of patients.
+> I was in an 80's band called the prevention. We were better than the cure.
 
 By the way, this joke is replaced by github every hour. via majik :)
