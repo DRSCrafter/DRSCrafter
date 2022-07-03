@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+> How do you find Will Smith in the snow?  Look for fresh prints.
 
 By the way, this joke is replaced by github every hour. via majik :)
