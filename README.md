@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I ate a clock yesterday. It was so time consuming.
+> What do you do when you see a space man?
+Park your car, man.
 
 By the way, this joke is replaced by github every hour. via majik :)
