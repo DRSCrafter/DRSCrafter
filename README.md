@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to be addicted to the hokey pokey, but I turned myself around.
+> Did you hear the one about the giant pickle?  He was kind of a big dill.
 
 By the way, this joke is replaced by github every hour. via majik :)
