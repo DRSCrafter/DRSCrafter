@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Shout out to my grandma, that's the only way she can hear.
+> To the person who stole my anti-depressant pills: I hope you're happy now.
 
 By the way, this joke is replaced by github every hour. via majik :)
