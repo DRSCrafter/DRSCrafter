@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> To the person who stole my anti-depressant pills: I hope you're happy now.
+> Why do you never see elephants hiding in trees? Because they're so good at it.
 
 By the way, this joke is replaced by github every hour. via majik :)
