@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They tried to make a diamond shaped like a duck. It quacked under the pressure.
+> This is my step ladder. I never knew my real ladder.
 
 By the way, this joke is replaced by github every hour. via majik :)
