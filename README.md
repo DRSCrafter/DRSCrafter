@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m on a whiskey diet. I’ve lost three days already.
+> Never take advice from electrons. They are always negative.
 
 By the way, this joke is replaced by github every hour. via majik :)
