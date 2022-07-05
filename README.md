@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "What time is it?" I don't know... it keeps changing.
+> Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
 
 By the way, this joke is replaced by github every hour. via majik :)
