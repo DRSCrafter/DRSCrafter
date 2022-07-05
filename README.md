@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do pumpkins sit on people’s porches?
-
-They have no hands to knock on the door.
+> Did you hear about the cheese who saved the world? It was Legend-dairy!
 
 By the way, this joke is replaced by github every hour. via majik :)
