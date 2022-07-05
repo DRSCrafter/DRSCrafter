@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> This is my step ladder. I never knew my real ladder.
+> Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
 
 By the way, this joke is replaced by github every hour. via majik :)
