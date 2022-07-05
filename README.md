@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+> I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
 
 By the way, this joke is replaced by github every hour. via majik :)
