@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a cow with no legs? Ground beef.
+> My New Years resolution is to stop leaving things so late.
 
 By the way, this joke is replaced by github every hour. via majik :)
