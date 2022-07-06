@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did Michael Jackson name his denim store?    Billy Jeans!
+> What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
 
 By the way, this joke is replaced by github every hour. via majik :)
