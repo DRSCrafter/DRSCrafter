@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are pirates called pirates? Because they arrr!
+> Why don't sharks eat clowns?  Because they taste funny.
 
 By the way, this joke is replaced by github every hour. via majik :)
