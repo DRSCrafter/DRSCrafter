@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I couldn't get a reservation at the library. They were completely booked.
+> What did Michael Jackson name his denim store?    Billy Jeans!
 
 By the way, this joke is replaced by github every hour. via majik :)
