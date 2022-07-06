@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+> Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
 
 By the way, this joke is replaced by github every hour. via majik :)
