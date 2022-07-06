@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My New Years resolution is to stop leaving things so late.
+> A termite walks into a bar and asks “Is the bar tender here?”
 
 By the way, this joke is replaced by github every hour. via majik :)
