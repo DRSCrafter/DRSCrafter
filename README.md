@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+> Why are pirates called pirates? Because they arrr!
 
 By the way, this joke is replaced by github every hour. via majik :)
