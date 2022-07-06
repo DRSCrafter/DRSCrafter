@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I'd like to start a diet, but I've got too much on my plate right now.
+> You know what they say about cliffhangers...
 
 By the way, this joke is replaced by github every hour. via majik :)
