@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an alligator in a vest? An in-vest-igator!
+> Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
 
 By the way, this joke is replaced by github every hour. via majik :)
