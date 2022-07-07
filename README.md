@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I just wrote a book on reverse psychology. Do not read it!
+> Some people say that I never got over my obsession with Phil Collins.
+But take a look at me now.
 
 By the way, this joke is replaced by github every hour. via majik :)
