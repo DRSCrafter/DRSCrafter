@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
+> Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
 
 By the way, this joke is replaced by github every hour. via majik :)
