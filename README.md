@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+> Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
 
 By the way, this joke is replaced by github every hour. via majik :)
