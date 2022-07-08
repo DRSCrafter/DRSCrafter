@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do young cows eat lunch? In the calf-ateria.
+> What do you call a dictionary on drugs? High definition.
 
 By the way, this joke is replaced by github every hour. via majik :)
