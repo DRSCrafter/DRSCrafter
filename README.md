@@ -61,6 +61,12 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do fish live in salt water? Because pepper makes them sneeze!
+> Wife: Honey I’m pregnant.
+
+Me: Well…. what do we do now?
+
+Wife: Well, I guess we should go to a baby doctor.
+
+Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
 
 By the way, this joke is replaced by github every hour. via majik :)
