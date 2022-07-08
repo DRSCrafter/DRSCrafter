@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the pirate say on his 80th birthday? Aye Matey!
+> I was thinking about moving to Moscow but there is no point Russian into things.
 
 By the way, this joke is replaced by github every hour. via majik :)
