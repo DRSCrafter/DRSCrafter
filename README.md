@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My first time using an elevator was an uplifting experience. The second time let me down.
+> I’ll tell you something about German sausages, they’re the wurst
 
 By the way, this joke is replaced by github every hour. via majik :)
