@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Which is the fastest growing city in the world? Dublin'
+> What do you give a sick lemon? Lemonaid.
 
 By the way, this joke is replaced by github every hour. via majik :)
