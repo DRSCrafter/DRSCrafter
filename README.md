@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is red and smells like blue paint?
-Red paint!
+> I’m only familiar with 25 letters in the English language. I don’t know why.
 
 By the way, this joke is replaced by github every hour. via majik :)
