@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+> How does Darth Vader like his toast? On the dark side.
 
 By the way, this joke is replaced by github every hour. via majik :)
