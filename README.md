@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did one snowman say to the other snow man? Do you smell carrot?
+> Remember, the best angle to approach a problem from is the "try" angle.
 
 By the way, this joke is replaced by github every hour. via majik :)
