@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How does Darth Vader like his toast? On the dark side.
+> What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
 
 By the way, this joke is replaced by github every hour. via majik :)
