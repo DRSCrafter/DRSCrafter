@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people eat light bulbs. They say it's a nice light snack.
+> What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
 
 By the way, this joke is replaced by github every hour. via majik :)
