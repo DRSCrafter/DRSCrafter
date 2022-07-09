@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a monkey in a mine field? A babooooom!
-
+> How many apples grow on a tree? All of them!
 
 By the way, this joke is replaced by github every hour. via majik :)
