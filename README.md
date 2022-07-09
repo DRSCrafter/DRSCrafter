@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+> Why do you never see elephants hiding in trees? Because they're so good at it.
 
 By the way, this joke is replaced by github every hour. via majik :)
