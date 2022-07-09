@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do you never see elephants hiding in trees? Because they're so good at it.
+> Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
 
 By the way, this joke is replaced by github every hour. via majik :)
