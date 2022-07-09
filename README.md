@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Remember, the best angle to approach a problem from is the "try" angle.
+> Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
 
 By the way, this joke is replaced by github every hour. via majik :)
