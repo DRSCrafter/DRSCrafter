@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many apples grow on a tree? All of them!
+> Did you hear about the campsite that got visited by Bigfoot? It got in tents.
 
 By the way, this joke is replaced by github every hour. via majik :)
