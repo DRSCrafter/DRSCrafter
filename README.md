@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call someone with no nose? Nobody knows.
+> Leather is great for sneaking around because it's made of hide.
 
 By the way, this joke is replaced by github every hour. via majik :)
