@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I ate a clock yesterday. It was so time consuming.
+> Why did the feline fail the lie detector test? Because he be lion.
 
 By the way, this joke is replaced by github every hour. via majik :)
