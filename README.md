@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the kid throw the clock out the window? He wanted to see time fly!
+> Someone broke into my house last night and stole my limbo trophy. How low can you go?
 
 By the way, this joke is replaced by github every hour. via majik :)
