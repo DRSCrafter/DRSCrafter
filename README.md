@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They laughed when I said I wanted to be a comedian – they’re not laughing now.
+> Ever wondered why bees hum? It's because they don't know the words.
 
 By the way, this joke is replaced by github every hour. via majik :)
