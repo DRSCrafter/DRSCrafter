@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+> Why did the opera singer go sailing? They wanted to hit the high Cs.
 
 By the way, this joke is replaced by github every hour. via majik :)
