@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do robots eat guacamole? With computer chips.
+> A cannibal is someone who is fed up with people.
 
 By the way, this joke is replaced by github every hour. via majik :)
