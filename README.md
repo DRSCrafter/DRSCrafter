@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+> What did the traffic light say to the car as it passed? "Don't look I'm changing!"
 
 By the way, this joke is replaced by github every hour. via majik :)
