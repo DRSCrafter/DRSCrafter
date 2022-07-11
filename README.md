@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+> I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
 
 By the way, this joke is replaced by github every hour. via majik :)
