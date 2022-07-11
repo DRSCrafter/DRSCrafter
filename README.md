@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do wizards clean their teeth three times a day? To prevent bat breath!
+> How do robots eat guacamole? With computer chips.
 
 By the way, this joke is replaced by github every hour. via majik :)
