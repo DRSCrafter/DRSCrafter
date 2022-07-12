@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+> Dad, can you put my shoes on? I don't think they'll fit me.
 
 By the way, this joke is replaced by github every hour. via majik :)
