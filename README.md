@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whiteboards ... are remarkable.
+> They laughed when I said I wanted to be a comedian – they’re not laughing now.
 
 By the way, this joke is replaced by github every hour. via majik :)
