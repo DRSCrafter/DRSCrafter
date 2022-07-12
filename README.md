@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They laughed when I said I wanted to be a comedian – they’re not laughing now.
+> I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
 
 By the way, this joke is replaced by github every hour. via majik :)
