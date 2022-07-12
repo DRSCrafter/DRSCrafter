@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+> What do you give a sick lemon? Lemonaid.
 
 By the way, this joke is replaced by github every hour. via majik :)
