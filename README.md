@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+> Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
 
 By the way, this joke is replaced by github every hour. via majik :)
