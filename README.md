@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My first time using an elevator was an uplifting experience. The second time let me down.
+> An apple a day keeps the bullies away. If you throw it hard enough.
 
 By the way, this joke is replaced by github every hour. via majik :)
