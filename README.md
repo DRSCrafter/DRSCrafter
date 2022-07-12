@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> An apple a day keeps the bullies away. If you throw it hard enough.
+> Whiteboards ... are remarkable.
 
 By the way, this joke is replaced by github every hour. via majik :)
