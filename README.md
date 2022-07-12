@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the teddy bear say “no” to dessert? Because she was stuffed.
+> I have kleptomania, but when it gets bad, I take something for it.
 
 By the way, this joke is replaced by github every hour. via majik :)
