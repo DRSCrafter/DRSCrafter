@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+> Why didn't the number 4 get into the nightclub? Because he is 2 square.
 
 By the way, this joke is replaced by github every hour. via majik :)
