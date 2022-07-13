@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the kid throw the clock out the window? He wanted to see time fly!
+> I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
 
 By the way, this joke is replaced by github every hour. via majik :)
