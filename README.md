@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When do doctors get angry? When they run out of patients.
+> What did the hat say to the scarf?
+You can hang around. I'll just go on ahead.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
