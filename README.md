@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why didn't the number 4 get into the nightclub? Because he is 2 square.
+> Can I watch the TV? Dad: Yes, but don’t turn it on.
 
 By the way, this joke is replaced by github every hour. via majik :)
