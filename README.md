@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Can I watch the TV? Dad: Yes, but don’t turn it on.
+> Why did the kid throw the clock out the window? He wanted to see time fly!
 
 By the way, this joke is replaced by github every hour. via majik :)
