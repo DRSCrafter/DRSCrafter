@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+> Why did the octopus beat the shark in a fight? Because it was well armed.
 
 By the way, this joke is replaced by github every hour. via majik :)
