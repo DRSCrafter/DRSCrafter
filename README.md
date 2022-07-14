@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> ‘Put the cat out’ … ‘I didn’t realize it was on fire
+> You can't trust a ladder. It will always let you down
 
 By the way, this joke is replaced by github every hour. via majik :)
