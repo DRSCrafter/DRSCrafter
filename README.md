@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the 0 say to the 8? Nice belt.
+> Why did the octopus beat the shark in a fight? Because it was well armed.
 
 By the way, this joke is replaced by github every hour. via majik :)
