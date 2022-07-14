@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I just got fired from a florist, apparently I took too many leaves.
+> I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
 
 By the way, this joke is replaced by github every hour. via majik :)
