@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the barber win the race? He took a short cut.
+> Did you hear about the Mexican train killer? He had loco motives
 
 By the way, this joke is replaced by github every hour. via majik :)
