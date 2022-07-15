@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+> Why do fish live in salt water? Because pepper makes them sneeze!
 
 By the way, this joke is replaced by github every hour. via majik :)
