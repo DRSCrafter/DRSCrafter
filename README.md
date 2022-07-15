@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the Mexican train killer? He had loco motives
+> There’s a new type of broom out, it’s sweeping the nation.
 
 By the way, this joke is replaced by github every hour. via majik :)
