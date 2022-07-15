@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Thanks for explaining the word "many" to me. It means a lot.
+> Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
