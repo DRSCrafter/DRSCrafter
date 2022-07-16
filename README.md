@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+> Why can't a bicycle stand on its own? It's two-tired.
 
 By the way, this joke is replaced by github every hour. via majik :)
