@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m reading a book on the history of glue – can’t put it down.
+> My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
 
 By the way, this joke is replaced by github every hour. via majik :)
