@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the girl smear peanut butter on the road? To go with the traffic jam.
+> Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
 
 By the way, this joke is replaced by github every hour. via majik :)
