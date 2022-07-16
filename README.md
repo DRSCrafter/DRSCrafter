@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I started a new business making yachts in my attic this year...the sails are going through the roof
+> I’m reading a book on the history of glue – can’t put it down.
 
 By the way, this joke is replaced by github every hour. via majik :)
