@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+> Can February march? No, but April may.
 
 By the way, this joke is replaced by github every hour. via majik :)
