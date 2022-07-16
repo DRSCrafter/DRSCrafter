@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the hardest part about sky diving? The ground.
+> What do you call an alligator in a vest? An in-vest-igator!
 
 By the way, this joke is replaced by github every hour. via majik :)
