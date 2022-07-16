@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> There’s a new type of broom out, it’s sweeping the nation.
+> What do you call a pig that knows karate? A pork chop!
 
 By the way, this joke is replaced by github every hour. via majik :)
