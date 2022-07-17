@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the m&m go to school? Because it wanted to be a Smartie!
+> What do computers and air conditioners have in common? They both become useless when you open windows.
 
 By the way, this joke is replaced by github every hour. via majik :)
