@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+> Why did the m&m go to school? Because it wanted to be a Smartie!
 
 By the way, this joke is replaced by github every hour. via majik :)
