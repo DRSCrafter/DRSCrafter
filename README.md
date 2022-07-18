@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+> Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
 
 By the way, this joke is replaced by github every hour. via majik :)
