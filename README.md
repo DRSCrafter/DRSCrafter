@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+> I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
 
 By the way, this joke is replaced by github every hour. via majik :)
