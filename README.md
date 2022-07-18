@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It doesn't matter how much you push the envelope. It will still be stationary.
+> What do you get when you cross a snowman with a vampire? Frostbite.
 
 By the way, this joke is replaced by github every hour. via majik :)
