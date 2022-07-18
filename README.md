@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an eagle who can play the piano? Talonted!
+> My boss told me to have a good day... so I went home.
 
 By the way, this joke is replaced by github every hour. via majik :)
