@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I have kleptomania, but when it gets bad, I take something for it.
+> What is the hardest part about sky diving? The ground.
 
 By the way, this joke is replaced by github every hour. via majik :)
