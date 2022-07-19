@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you make a water bed more bouncy. You use Spring Water
+> They laughed when I said I wanted to be a comedian – they’re not laughing now.
 
 By the way, this joke is replaced by github every hour. via majik :)
