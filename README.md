@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I fear for the calendar, its days are numbered.
-
+> How do you make a water bed more bouncy. You use Spring Water
 
 By the way, this joke is replaced by github every hour. via majik :)
