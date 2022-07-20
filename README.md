@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+> Where did Captain Hook get his hook? From a second hand store.
 
 By the way, this joke is replaced by github every hour. via majik :)
