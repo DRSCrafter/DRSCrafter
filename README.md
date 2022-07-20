@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do birds give out on Halloween? Tweets.
+> Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
 
 By the way, this joke is replaced by github every hour. via majik :)
