@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+> Sore throats are a pain in the neck!
 
 By the way, this joke is replaced by github every hour. via majik :)
