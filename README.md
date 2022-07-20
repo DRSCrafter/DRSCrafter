@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sore throats are a pain in the neck!
+> Why are fish easy to weigh? Because they have their own scales.
 
 By the way, this joke is replaced by github every hour. via majik :)
