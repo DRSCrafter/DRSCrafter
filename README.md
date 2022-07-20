@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+> They laughed when I said I wanted to be a comedian – they’re not laughing now.
 
 By the way, this joke is replaced by github every hour. via majik :)
