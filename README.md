@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where does batman go to the bathroom? The batroom.
+> When will the little snake arrive? I don't know but he won't be long...
 
 By the way, this joke is replaced by github every hour. via majik :)
