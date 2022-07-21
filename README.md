@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I cut my finger chopping cheese, but I think that I may have grater problems.
+> Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
 
 By the way, this joke is replaced by github every hour. via majik :)
