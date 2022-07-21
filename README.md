@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you make a water bed more bouncy. You use Spring Water
+> Did you hear about the two thieves who stole a calendar? They each got six months.
 
 By the way, this joke is replaced by github every hour. via majik :)
