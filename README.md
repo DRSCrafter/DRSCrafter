@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Milk is also the fastest liquid on earth – its pasteurized before you even see it
+> Parallel lines have so much in common. It’s a shame they’ll never meet.
 
 By the way, this joke is replaced by github every hour. via majik :)
