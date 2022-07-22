@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+> Why did the girl smear peanut butter on the road? To go with the traffic jam.
 
 By the way, this joke is replaced by github every hour. via majik :)
