@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I met this girl on a dating site and, I don't know, we just clicked.
+> Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
 
 By the way, this joke is replaced by github every hour. via majik :)
