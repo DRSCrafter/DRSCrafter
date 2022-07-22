@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Coffee has a tough time at my house, every morning it gets mugged.
+> How do you organize a space party? You planet.
 
 By the way, this joke is replaced by github every hour. via majik :)
