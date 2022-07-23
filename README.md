@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My first time using an elevator was an uplifting experience. The second time let me down.
+> I was wondering why the frisbee was getting bigger, then it hit me.
 
 By the way, this joke is replaced by github every hour. via majik :)
