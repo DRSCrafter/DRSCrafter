@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the green grape say to the purple grape?
-BREATH!!
+> What is the leading cause of dry skin? Towels
 
 By the way, this joke is replaced by github every hour. via majik :)
