@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where does Napoleon keep his armies? In his sleevies.
+> Yesterday a clown held a door open for me. I thought it was a nice jester.
 
 By the way, this joke is replaced by github every hour. via majik :)
