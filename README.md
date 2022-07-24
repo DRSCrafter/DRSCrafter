@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was wondering why the frisbee was getting bigger, then it hit me.
+> What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
 
 By the way, this joke is replaced by github every hour. via majik :)
