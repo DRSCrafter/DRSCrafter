@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+> A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
 
 By the way, this joke is replaced by github every hour. via majik :)
