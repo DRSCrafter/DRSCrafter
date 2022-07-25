@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are oranges the smartest fruit? Because they are made to concentrate. 
+> I had a dream that I was a muffler last night. I woke up exhausted!
 
 By the way, this joke is replaced by github every hour. via majik :)
