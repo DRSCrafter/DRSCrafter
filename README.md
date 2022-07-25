@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you get two whales in a car? Start in England and drive West.
+> Did you know that protons have mass? I didn't even know they were catholic.
 
 By the way, this joke is replaced by github every hour. via majik :)
