@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+>  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
+
 
 By the way, this joke is replaced by github every hour. via majik :)
