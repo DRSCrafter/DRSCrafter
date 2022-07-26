@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Writing with a broken pencil is pointless.
+> What’s E.T. short for? He’s only got little legs.
 
 By the way, this joke is replaced by github every hour. via majik :)
