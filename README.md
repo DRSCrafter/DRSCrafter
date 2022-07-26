@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do prisoners use to call each other? Cell phones.
+> What’s brown and sounds like a bell? Dung!
 
 By the way, this joke is replaced by github every hour. via majik :)
