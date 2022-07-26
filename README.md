@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+> If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
 
 By the way, this joke is replaced by github every hour. via majik :)
