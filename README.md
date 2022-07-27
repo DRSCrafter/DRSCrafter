@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the one about the guy with the broken hearing aid? Neither did he.
+> Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
 
 By the way, this joke is replaced by github every hour. via majik :)
