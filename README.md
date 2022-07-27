@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the best thing about elevator jokes? They work on so many levels.
+> Why is the new Kindle screen textured to look like paper? So you feel write at home.
 
 By the way, this joke is replaced by github every hour. via majik :)
