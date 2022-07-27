@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It was raining cats and dogs the other day. I almost stepped in a poodle.
+> Did you hear the joke about the wandering nun? She was a roman catholic.
 
 By the way, this joke is replaced by github every hour. via majik :)
