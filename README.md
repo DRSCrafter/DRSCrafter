@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They're making a movie about clocks. It's about time
+> I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
 
 By the way, this joke is replaced by github every hour. via majik :)
