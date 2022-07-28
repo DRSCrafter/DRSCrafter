@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I couldn't figure out how the seat belt worked. Then it just clicked.
+> Where do rabbits go after they get married? On a bunny-moon.
 
 By the way, this joke is replaced by github every hour. via majik :)
