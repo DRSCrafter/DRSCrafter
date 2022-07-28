@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a group of killer whales playing instruments? An Orca-stra.
+> A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
 
 By the way, this joke is replaced by github every hour. via majik :)
