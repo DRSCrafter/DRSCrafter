@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Someone broke into my house last night and stole my limbo trophy. How low can you go?
+> What do you call a boomerang that won't come back? A stick.
 
 By the way, this joke is replaced by github every hour. via majik :)
