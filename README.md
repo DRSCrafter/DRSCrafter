@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Conjunctivitis.com – now that’s a site for sore eyes.
+> "I'm sorry." "Hi sorry, I'm dad"
 
 By the way, this joke is replaced by github every hour. via majik :)
