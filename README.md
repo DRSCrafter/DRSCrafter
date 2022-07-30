@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of pants do ghosts wear? Boo jeans.
+> Why did the melons plan a big wedding? Because they cantaloupe!
 
 By the way, this joke is replaced by github every hour. via majik :)
