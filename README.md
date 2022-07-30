@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew a guy who collected candy canes, they were all in mint condition
+> Why can't eggs have love? They will break up too soon.
 
 By the way, this joke is replaced by github every hour. via majik :)
