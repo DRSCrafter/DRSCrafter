@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+> Have you heard about the film "Constipation", you probably haven't because it's not out yet.
 
 By the way, this joke is replaced by github every hour. via majik :)
