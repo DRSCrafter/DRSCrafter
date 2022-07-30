@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A magician was driving down the street and then he turned into a driveway.
+> I knew a guy who collected candy canes, they were all in mint condition
 
 By the way, this joke is replaced by github every hour. via majik :)
