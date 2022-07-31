@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I've just written a song about a tortilla. Well, it is more of a rap really.
+> How many tickles does it take to tickle an octopus? Ten-tickles!
 
 By the way, this joke is replaced by github every hour. via majik :)
