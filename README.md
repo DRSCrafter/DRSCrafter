@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do valley girls hang out in odd numbered groups? Because they can't even.
+> What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
 
 By the way, this joke is replaced by github every hour. via majik :)
