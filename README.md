@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many tickles does it take to tickle an octopus? Ten-tickles!
+> When do doctors get angry? When they run out of patients.
 
 By the way, this joke is replaced by github every hour. via majik :)
