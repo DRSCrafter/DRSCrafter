@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+> Did you hear about the kidnapping at school? It's ok, he woke up.
 
 By the way, this joke is replaced by github every hour. via majik :)
