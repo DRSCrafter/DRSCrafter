@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Never Trust Someone With Graph Paper...
-
-They're always plotting something.
+> What do you call a dictionary on drugs? High definition.
 
 By the way, this joke is replaced by github every hour. via majik :)
