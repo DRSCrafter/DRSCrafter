@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you make holy water? You boil the hell out of it.
+> What do you do on a remote island? Try and find the TV island it belongs to.
 
 By the way, this joke is replaced by github every hour. via majik :)
