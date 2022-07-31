@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me to have a good day. So I went home...
+> How do you make holy water? You boil the hell out of it.
 
 By the way, this joke is replaced by github every hour. via majik :)
