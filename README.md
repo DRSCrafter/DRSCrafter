@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Writing with a broken pencil is pointless.
+> Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
 
 By the way, this joke is replaced by github every hour. via majik :)
