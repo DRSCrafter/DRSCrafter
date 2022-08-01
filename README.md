@@ -61,8 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many seconds are in a year?
-12.
-January 2nd, February 2nd, March 2nd, April 2nd.... etc
+> What is red and smells like blue paint?
+Red paint!
 
 By the way, this joke is replaced by github every hour. via majik :)
