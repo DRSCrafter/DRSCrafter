@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+> My boss told me to attach two pieces of wood together... I totally nailed it!
 
 By the way, this joke is replaced by github every hour. via majik :)
