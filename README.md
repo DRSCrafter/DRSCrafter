@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+> What do you call a boy who stopped digging holes? Douglas.
 
 By the way, this joke is replaced by github every hour. via majik :)
