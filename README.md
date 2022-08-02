@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you get hanging from Apple trees? Sore arms.
+> When does a joke become a dad joke? When it becomes apparent.
 
 By the way, this joke is replaced by github every hour. via majik :)
