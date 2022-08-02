@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m only familiar with 25 letters in the English language. I don’t know why.
+> Remember, the best angle to approach a problem from is the "try" angle.
 
 By the way, this joke is replaced by github every hour. via majik :)
