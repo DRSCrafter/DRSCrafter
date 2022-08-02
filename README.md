@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do choirs keep buckets handy? So they can carry their tune
+> The best time on a clock is 6:30--hands down.
 
 By the way, this joke is replaced by github every hour. via majik :)
