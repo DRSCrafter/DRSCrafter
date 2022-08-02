@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call your friend who stands in a hole? Phil.
+> How many bones are in the human hand? A handful of them.
 
 By the way, this joke is replaced by github every hour. via majik :)
