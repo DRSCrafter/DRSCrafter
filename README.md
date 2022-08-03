@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My sea sickness comes in waves.
+> Where do cats write notes?
+Scratch Paper!
 
 By the way, this joke is replaced by github every hour. via majik :)
