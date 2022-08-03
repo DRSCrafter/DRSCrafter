@@ -61,7 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do cats write notes?
-Scratch Paper!
+> What do you get when you cross a bee and a sheep? A bah-humbug.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
