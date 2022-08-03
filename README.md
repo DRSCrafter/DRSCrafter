@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the dog say to the two trees? Bark bark.
+> My sea sickness comes in waves.
 
 By the way, this joke is replaced by github every hour. via majik :)
