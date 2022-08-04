@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+> what do you call a dog that can do magic tricks? a labracadabrador
 
 By the way, this joke is replaced by github every hour. via majik :)
