@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Just read a few facts about frogs. They were ribbiting.
+> I went to the zoo the other day, there was only one dog in it. It was a shitzu.
 
 By the way, this joke is replaced by github every hour. via majik :)
