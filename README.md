@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+> What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
 
 By the way, this joke is replaced by github every hour. via majik :)
