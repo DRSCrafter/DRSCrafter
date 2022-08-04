@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I asked a frenchman if he played video games. He said "Wii"
+> Why can't eggs have love? They will break up too soon.
 
 By the way, this joke is replaced by github every hour. via majik :)
