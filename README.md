@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+> Why do birds fly south for the winter? Because it's too far to walk.
 
 By the way, this joke is replaced by github every hour. via majik :)
