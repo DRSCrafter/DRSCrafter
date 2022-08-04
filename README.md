@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+> What do you do on a remote island? Try and find the TV island it belongs to.
 
 By the way, this joke is replaced by github every hour. via majik :)
