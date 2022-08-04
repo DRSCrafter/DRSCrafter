@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+> A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
 
 By the way, this joke is replaced by github every hour. via majik :)
