@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+> Why is the ocean always blue? Because the shore never waves back.
 
 By the way, this joke is replaced by github every hour. via majik :)
