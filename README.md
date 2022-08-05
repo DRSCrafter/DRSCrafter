@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is the ocean always blue? Because the shore never waves back.
+> Don't trust atoms. They make up everything.
 
 By the way, this joke is replaced by github every hour. via majik :)
