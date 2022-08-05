@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Q: What did the spaghetti say to the other spaghetti?
-A: Pasta la vista, baby!
+> Why do crabs never give to charity? Because they’re shellfish.
 
 By the way, this joke is replaced by github every hour. via majik :)
