@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the piece of bread say to the knife? Butter me up.
+> I don't trust stairs. They're always up to something.
 
 By the way, this joke is replaced by github every hour. via majik :)
