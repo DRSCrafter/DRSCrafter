@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are fish so smart? Because they live in schools!
+> Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
 
 By the way, this joke is replaced by github every hour. via majik :)
