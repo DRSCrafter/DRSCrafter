@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do you never see elephants hiding in trees? Because they're so good at it.
+> What's the worst thing about ancient history class? The teachers tend to Babylon.
 
 By the way, this joke is replaced by github every hour. via majik :)
