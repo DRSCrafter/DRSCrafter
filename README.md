@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I just broke my guitar. It's okay, I won't fret
+> They're making a movie about clocks. It's about time
 
 By the way, this joke is replaced by github every hour. via majik :)
