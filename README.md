@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's black and white and read all over? The newspaper.
+> What happens when you anger a brain surgeon? They will give you a piece of your mind.
 
 By the way, this joke is replaced by github every hour. via majik :)
