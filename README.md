@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They're making a movie about clocks. It's about time
+> How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
 
 By the way, this joke is replaced by github every hour. via majik :)
