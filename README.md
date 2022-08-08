@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fat psychic? A four-chin teller.
+> Slept like a log last night … woke up in the fireplace.
 
 By the way, this joke is replaced by github every hour. via majik :)
