@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the Red light say to the Green light? Don't look at me I'm changing!
+> My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
 
 By the way, this joke is replaced by github every hour. via majik :)
