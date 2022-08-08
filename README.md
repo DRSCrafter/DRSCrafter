@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the left eye say to the right eye? Between us, something smells!
+> What do you call a fat psychic? A four-chin teller.
 
 By the way, this joke is replaced by github every hour. via majik :)
