@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the mountain climber name his son? Cliff.
+> What creature is smarter than a talking parrot? A spelling bee.
 
 By the way, this joke is replaced by github every hour. via majik :)
