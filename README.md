@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+> What did the Red light say to the Green light? Don't look at me I'm changing!
 
 By the way, this joke is replaced by github every hour. via majik :)
