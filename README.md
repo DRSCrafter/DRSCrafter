@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What creature is smarter than a talking parrot? A spelling bee.
+> What did the left eye say to the right eye? Between us, something smells!
 
 By the way, this joke is replaced by github every hour. via majik :)
