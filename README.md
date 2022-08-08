@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a dictionary on drugs? High definition.
+> In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
 
 By the way, this joke is replaced by github every hour. via majik :)
