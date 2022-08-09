@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you make a water bed more bouncy. You use Spring Water
+> I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
 
 By the way, this joke is replaced by github every hour. via majik :)
