@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+> So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
 
 By the way, this joke is replaced by github every hour. via majik :)
