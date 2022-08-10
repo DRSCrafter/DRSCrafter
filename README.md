@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+> Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
 
 By the way, this joke is replaced by github every hour. via majik :)
