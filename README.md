@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard of the band 1023MB? They haven't got a gig yet.
+> What do you call a bee that lives in America? A USB.
 
 By the way, this joke is replaced by github every hour. via majik :)
