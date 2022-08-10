@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a bee that lives in America? A USB.
+> Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
 
 By the way, this joke is replaced by github every hour. via majik :)
