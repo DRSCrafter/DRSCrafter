@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Is the pool safe for diving? It deep ends.
+> What do you call a sheep with no legs? A cloud.
 
 By the way, this joke is replaced by github every hour. via majik :)
