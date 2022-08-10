@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+> What did the grape do when he got stepped on? He let out a little wine.
 
 By the way, this joke is replaced by github every hour. via majik :)
