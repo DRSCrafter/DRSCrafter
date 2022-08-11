@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did Mozart kill all his chickens?
-Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
-
+> It was raining cats and dogs the other day. I almost stepped in a poodle.
 
 By the way, this joke is replaced by github every hour. via majik :)
