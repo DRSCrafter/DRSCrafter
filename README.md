@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was going to learn how to juggle, but I didn't have the balls.
+> Why did Mozart kill all his chickens?
+Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+
 
 By the way, this joke is replaced by github every hour. via majik :)
