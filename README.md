@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I had a dream that I was a muffler last night. I woke up exhausted!
+> What is the best way to carve?
+Whittle by whittle.
 
 By the way, this joke is replaced by github every hour. via majik :)
