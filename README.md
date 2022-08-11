@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+> Why are mummys scared of vacation? They're afraid to unwind.
 
 By the way, this joke is replaced by github every hour. via majik :)
