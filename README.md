@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a pig with three eyes? Piiig
+> Where do you learn to make banana splits? At sundae school.
 
 By the way, this joke is replaced by github every hour. via majik :)
