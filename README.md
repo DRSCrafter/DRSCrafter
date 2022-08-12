@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are fish easy to weigh? Because they have their own scales.
+> How do robots eat guacamole? With computer chips.
 
 By the way, this joke is replaced by github every hour. via majik :)
