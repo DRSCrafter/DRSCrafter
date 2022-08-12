@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do birds give out on Halloween? Tweets.
+> What do you call a pig with three eyes? Piiig
 
 By the way, this joke is replaced by github every hour. via majik :)
