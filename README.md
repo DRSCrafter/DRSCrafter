@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> To the guy who invented zero... thanks for nothing.
+> My sea sickness comes in waves.
 
 By the way, this joke is replaced by github every hour. via majik :)
