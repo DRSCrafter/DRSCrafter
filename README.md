@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I heard there was a new store called Moderation. They have everything there
+> They laughed when I said I wanted to be a comedian – they’re not laughing now.
 
 By the way, this joke is replaced by github every hour. via majik :)
