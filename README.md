@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do you learn to make banana splits? At sundae school.
+> What is bread's favorite number?  Leaven.
 
 By the way, this joke is replaced by github every hour. via majik :)
