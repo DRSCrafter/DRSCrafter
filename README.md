@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Archaeology really is a career in ruins.
+> Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
 
 By the way, this joke is replaced by github every hour. via majik :)
