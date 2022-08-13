@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I am so good at sleeping I can do it with my eyes closed!
+> What do you call an old snowman? Water.
 
 By the way, this joke is replaced by github every hour. via majik :)
