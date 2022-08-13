@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+> I’ll tell you something about German sausages, they’re the wurst
 
 By the way, this joke is replaced by github every hour. via majik :)
