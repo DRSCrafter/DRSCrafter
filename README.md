@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+> I saw a documentary on TV last night about how they put ships together.  It was rivetting.
 
 By the way, this joke is replaced by github every hour. via majik :)
