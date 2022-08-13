@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was the big cat disqualified from the race? Because it was a cheetah.
+> Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
 
 By the way, this joke is replaced by github every hour. via majik :)
