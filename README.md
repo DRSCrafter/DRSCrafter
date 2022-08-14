@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the late tomato say to the early tomato? I’ll ketch up
+> What does a clock do when it's hungry? It goes back four seconds!
 
 By the way, this joke is replaced by github every hour. via majik :)
