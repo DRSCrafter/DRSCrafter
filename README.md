@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+> Why can't a bicycle stand on its own? It's two-tired.
 
 By the way, this joke is replaced by github every hour. via majik :)
