@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How come the stadium got hot after the game? Because all of the fans left.
+> What did the late tomato say to the early tomato? I’ll ketch up
 
 By the way, this joke is replaced by github every hour. via majik :)
