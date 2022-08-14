@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+> My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
 
 By the way, this joke is replaced by github every hour. via majik :)
