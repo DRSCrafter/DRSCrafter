@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a dad that has fallen through the ice? A Popsicle.
+> Why did the cookie cry?
+Because his mother was a wafer so long
 
 By the way, this joke is replaced by github every hour. via majik :)
