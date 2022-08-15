@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> I am terrified of elevators. I’m going to start taking steps to avoid them.
 
 By the way, this joke is replaced by github every hour. via majik :)
