@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work in a shoe recycling shop. It was sole destroying.
+> What kind of bagel can fly? A plain bagel.
 
 By the way, this joke is replaced by github every hour. via majik :)
