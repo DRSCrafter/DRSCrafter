@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Milk is also the fastest liquid on earth – its pasteurized before you even see it
+> My cat was just sick on the carpet, I don’t think it’s feline well.
 
 By the way, this joke is replaced by github every hour. via majik :)
