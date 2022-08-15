@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+> Why did the chicken get a penalty? For fowl play.
 
 By the way, this joke is replaced by github every hour. via majik :)
