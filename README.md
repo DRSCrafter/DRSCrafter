@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of bagel can fly? A plain bagel.
+> Why did the teddy bear say “no” to dessert? Because she was stuffed.
 
 By the way, this joke is replaced by github every hour. via majik :)
