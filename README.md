@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Geology rocks, but Geography is where it's at!
+> To the guy who invented zero... thanks for nothing.
 
 By the way, this joke is replaced by github every hour. via majik :)
