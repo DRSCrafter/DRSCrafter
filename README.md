@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of dinosaur loves to sleep? A stega-snore-us.
+> Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
 
 By the way, this joke is replaced by github every hour. via majik :)
