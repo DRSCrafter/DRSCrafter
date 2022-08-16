@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many South Americans does it take to change a lightbulb? A Brazilian
+> It was raining cats and dogs the other day. I almost stepped in a poodle.
 
 By the way, this joke is replaced by github every hour. via majik :)
