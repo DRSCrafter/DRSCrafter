@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+> Geology rocks, but Geography is where it's at!
 
 By the way, this joke is replaced by github every hour. via majik :)
