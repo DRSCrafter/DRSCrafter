@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+> I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
 
 By the way, this joke is replaced by github every hour. via majik :)
