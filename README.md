@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+> I couldn't figure out how the seat belt worked. Then it just clicked.
 
 By the way, this joke is replaced by github every hour. via majik :)
