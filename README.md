@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I burned 2000 calories today, I left my food in the oven for too long.
+> Did you hear the one about the guy with the broken hearing aid? Neither did he.
 
 By the way, this joke is replaced by github every hour. via majik :)
