@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a cow on a trampoline? A milk shake!
+> Did you hear about the Mexican train killer? He had loco motives
 
 By the way, this joke is replaced by github every hour. via majik :)
