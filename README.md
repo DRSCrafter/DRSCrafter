@@ -61,10 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Me: If humans lose the ability to hear high frequency volumes as they get older, can my 4 week old son hear a dog whistle?
-
-Doctor: No, humans can never hear that high of a frequency no matter what age they are.
-
-Me: Trick question... dogs can't whistle.
+> Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
 
 By the way, this joke is replaced by github every hour. via majik :)
