@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fake noodle? An impasta.
+> Shout out to my grandma, that's the only way she can hear.
 
 By the way, this joke is replaced by github every hour. via majik :)
