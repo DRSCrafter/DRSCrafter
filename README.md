@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people say that I never got over my obsession with Phil Collins.
-But take a look at me now.
+> I went to a Foo Fighters Concert once... It was Everlong...
 
 By the way, this joke is replaced by github every hour. via majik :)
