@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the grape do when he got stepped on? He let out a little wine.
+> The great thing about stationery shops is they're always in the same place...
 
 By the way, this joke is replaced by github every hour. via majik :)
