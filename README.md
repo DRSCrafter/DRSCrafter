@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The great thing about stationery shops is they're always in the same place...
+> I am terrified of elevators. I’m going to start taking steps to avoid them.
 
 By the way, this joke is replaced by github every hour. via majik :)
