@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+> My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
 
 By the way, this joke is replaced by github every hour. via majik :)
