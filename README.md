@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are mummys scared of vacation? They're afraid to unwind.
+> What do you call a fake noodle? An impasta.
 
 By the way, this joke is replaced by github every hour. via majik :)
