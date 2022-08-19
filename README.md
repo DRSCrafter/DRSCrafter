@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Is the pool safe for diving? It deep ends.
+> People who don't eat gluten are really going against the grain.
 
 By the way, this joke is replaced by github every hour. via majik :)
