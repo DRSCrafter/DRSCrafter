@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A bartender broke up with her boyfriend, but he kept asking her for another shot.
+> Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
 
 By the way, this joke is replaced by github every hour. via majik :)
