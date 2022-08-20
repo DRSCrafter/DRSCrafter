@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It was raining cats and dogs the other day. I almost stepped in a poodle.
+> The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
 
 By the way, this joke is replaced by github every hour. via majik :)
