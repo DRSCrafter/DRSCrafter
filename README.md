@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you make a hankie dance? Put a little boogie in it.
+> How do the trees get on the internet? They log on.
 
 By the way, this joke is replaced by github every hour. via majik :)
