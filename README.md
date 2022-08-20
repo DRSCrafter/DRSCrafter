@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got an A on my origami assignment when I turned my paper into my teacher
+> It was raining cats and dogs the other day. I almost stepped in a poodle.
 
 By the way, this joke is replaced by github every hour. via majik :)
