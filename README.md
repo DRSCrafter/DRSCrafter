@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many bones are in the human hand? A handful of them.
+> I invented a new word! Plagiarism!
 
 By the way, this joke is replaced by github every hour. via majik :)
