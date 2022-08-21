@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a droid that takes the long way around? R2 detour.
+> I am terrified of elevators. I’m going to start taking steps to avoid them.
 
 By the way, this joke is replaced by github every hour. via majik :)
