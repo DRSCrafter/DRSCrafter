@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+> Why couldn't the lifeguard save the hippie? He was too far out, man.
 
 By the way, this joke is replaced by github every hour. via majik :)
