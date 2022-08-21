@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why didn’t the orange win the race? It ran out of juice.
+> I cut my finger chopping cheese, but I think that I may have grater problems.
 
 By the way, this joke is replaced by github every hour. via majik :)
