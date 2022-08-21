@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+> What do you get when you cross a snowman with a vampire? Frostbite.
 
 By the way, this joke is replaced by github every hour. via majik :)
