@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They tried to make a diamond shaped like a duck. It quacked under the pressure.
+> I used to be addicted to the hokey pokey, but I turned myself around.
 
 By the way, this joke is replaced by github every hour. via majik :)
