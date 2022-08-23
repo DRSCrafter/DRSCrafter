@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Breaking news! Energizer Bunny arrested – charged with battery.
+> Where did you learn to make ice cream? Sunday school.
 
 By the way, this joke is replaced by github every hour. via majik :)
