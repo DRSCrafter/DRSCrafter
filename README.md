@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I started a new business making yachts in my attic this year...the sails are going through the roof
+> How does the moon cut his hair? Eclipse it.
 
 By the way, this joke is replaced by github every hour. via majik :)
