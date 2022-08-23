@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-
-So, I got a job at a travel agency.  Now, I know I'll be going places.
+> A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
 
 By the way, this joke is replaced by github every hour. via majik :)
