@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+> I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
 
 By the way, this joke is replaced by github every hour. via majik :)
