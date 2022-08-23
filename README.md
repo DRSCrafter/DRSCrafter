@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don't skeletons ride roller coasters? They don't have the stomach for it.
+> Breaking news! Energizer Bunny arrested – charged with battery.
 
 By the way, this joke is replaced by github every hour. via majik :)
