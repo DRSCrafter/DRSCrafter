@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+> What did the piece of bread say to the knife? Butter me up.
 
 By the way, this joke is replaced by github every hour. via majik :)
