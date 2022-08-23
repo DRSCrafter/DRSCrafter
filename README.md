@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-"Pop," goes the weasel.
+> I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
 
 By the way, this joke is replaced by github every hour. via majik :)
