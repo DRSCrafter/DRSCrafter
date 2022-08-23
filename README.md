@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where did you learn to make ice cream? Sunday school.
+> Whoever invented the knock-knock joke should get a no bell prize.
 
 By the way, this joke is replaced by github every hour. via majik :)
