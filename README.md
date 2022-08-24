@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+> Two silk worms had a race. They ended up in a tie.
 
 By the way, this joke is replaced by github every hour. via majik :)
