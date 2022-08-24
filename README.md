@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fly without wings? A walk.
+> Hostess: Do you have a preference of where you sit?
+Dad: Down.
 
 By the way, this joke is replaced by github every hour. via majik :)
