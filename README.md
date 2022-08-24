@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Toasters were the first form of pop-up notifications.
+> Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
 
 By the way, this joke is replaced by github every hour. via majik :)
