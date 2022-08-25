@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+> What do I look like? A JOKE MACHINE!?
 
 By the way, this joke is replaced by github every hour. via majik :)
