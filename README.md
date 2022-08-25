@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If two vegans are having an argument, is it still considered beef?
+> Can I watch the TV? Dad: Yes, but don’t turn it on.
 
 By the way, this joke is replaced by github every hour. via majik :)
