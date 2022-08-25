@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Can I watch the TV? Dad: Yes, but don’t turn it on.
+> Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
 
 By the way, this joke is replaced by github every hour. via majik :)
