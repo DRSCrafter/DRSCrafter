@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Past, present, and future walked into a bar.... It was tense.
+> How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
 
 By the way, this joke is replaced by github every hour. via majik :)
