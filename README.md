@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What concert costs only 45 cents? 50 cent featuring Nickelback.
+> Why did the worker get fired from the orange juice factory? Lack of concentration.
 
 By the way, this joke is replaced by github every hour. via majik :)
