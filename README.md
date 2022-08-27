@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+> Why did the house go to the doctor? It was having window panes.
 
 By the way, this joke is replaced by github every hour. via majik :)
