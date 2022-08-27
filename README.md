@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+> How can you tell a vampire has a cold? They start coffin.
 
 By the way, this joke is replaced by github every hour. via majik :)
