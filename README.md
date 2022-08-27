@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's brown and sticky? A stick.
+> Why didn't the number 4 get into the nightclub? Because he is 2 square.
 
 By the way, this joke is replaced by github every hour. via majik :)
