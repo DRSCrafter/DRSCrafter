@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+> What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
 
 By the way, this joke is replaced by github every hour. via majik :)
