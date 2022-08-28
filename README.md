@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+> What do you get when you cross a bee and a sheep? A bah-humbug.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
