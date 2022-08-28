@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are mummys scared of vacation? They're afraid to unwind.
+> I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
 
 By the way, this joke is replaced by github every hour. via majik :)
