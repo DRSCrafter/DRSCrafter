@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the pirate say on his 80th birthday? Aye Matey!
+> What do you call a girl between two posts? Annette.
 
 By the way, this joke is replaced by github every hour. via majik :)
