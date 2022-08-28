@@ -61,7 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you get when you cross a bee and a sheep? A bah-humbug.
+> Where was the Declaration of Independence signed?
 
+At the bottom! 
 
 By the way, this joke is replaced by github every hour. via majik :)
