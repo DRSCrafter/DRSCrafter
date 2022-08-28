@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me to have a good day. So I went home...
+> What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
 
 By the way, this joke is replaced by github every hour. via majik :)
