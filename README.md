@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the guy who invented Lifesavers? They say he made a mint.
+> I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
 
 By the way, this joke is replaced by github every hour. via majik :)
