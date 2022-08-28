@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+> Did you hear about the guy who invented Lifesavers? They say he made a mint.
 
 By the way, this joke is replaced by github every hour. via majik :)
