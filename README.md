@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+> Remember, the best angle to approach a problem from is the "try" angle.
 
 By the way, this joke is replaced by github every hour. via majik :)
