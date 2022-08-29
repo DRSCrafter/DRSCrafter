@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the scarecrow win an award? Because he was outstanding in his field.
+> I hate perforated lines, they're tearable.
 
 By the way, this joke is replaced by github every hour. via majik :)
