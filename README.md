@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Remember, the best angle to approach a problem from is the "try" angle.
+> Our wedding was so beautiful, even the cake was in tiers.
 
 By the way, this joke is replaced by github every hour. via majik :)
