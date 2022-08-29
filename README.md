@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Our wedding was so beautiful, even the cake was in tiers.
+> What is red and smells like blue paint?
+Red paint!
 
 By the way, this joke is replaced by github every hour. via majik :)
