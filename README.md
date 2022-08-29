@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do hens stay fit? They always egg-cercise!
+> Mountains aren't just funny, they are hill areas
 
 By the way, this joke is replaced by github every hour. via majik :)
