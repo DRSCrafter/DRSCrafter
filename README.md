@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I hate perforated lines, they're tearable.
+> Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
 
 By the way, this joke is replaced by github every hour. via majik :)
