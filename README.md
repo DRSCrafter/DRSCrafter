@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do the trees get on the internet? They log on.
+> It’s hard to explain puns to kleptomaniacs, because they take everything literally.
 
 By the way, this joke is replaced by github every hour. via majik :)
