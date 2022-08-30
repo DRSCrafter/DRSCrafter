@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do pirates not know the alphabet? They always get stuck at "C".
+> When you have a bladder infection, urine trouble.
 
 By the way, this joke is replaced by github every hour. via majik :)
