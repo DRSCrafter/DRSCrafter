@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+> Why do pirates not know the alphabet? They always get stuck at "C".
 
 By the way, this joke is replaced by github every hour. via majik :)
