@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+> Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
 
 By the way, this joke is replaced by github every hour. via majik :)
