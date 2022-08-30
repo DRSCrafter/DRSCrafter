@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of bagel can fly? A plain bagel.
+> An apple a day keeps the bullies away. If you throw it hard enough.
 
 By the way, this joke is replaced by github every hour. via majik :)
