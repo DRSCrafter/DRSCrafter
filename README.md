@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I met this girl on a dating site and, I don't know, we just clicked.
+> Somebody stole my Microsoft Office and they're going to pay - you have my Word.
 
 By the way, this joke is replaced by github every hour. via majik :)
