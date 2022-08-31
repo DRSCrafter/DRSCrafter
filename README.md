@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do bees have sticky hair? Because they use honey combs!
+> This morning I was wondering where the sun was, but then it dawned on me.
 
 By the way, this joke is replaced by github every hour. via majik :)
