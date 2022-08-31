@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Every night at 11:11, I make a wish that someone will come fix my broken clock.
+> Someone broke into my house last night and stole my limbo trophy. How low can you go?
 
 By the way, this joke is replaced by github every hour. via majik :)
