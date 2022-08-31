@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why can't your nose be 12 inches long? Because then it'd be a foot!
+> How do you make Lady Gaga cry? Poker face. 
 
 By the way, this joke is replaced by github every hour. via majik :)
