@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+> What did the Buffalo say to his little boy when he dropped him off at school? Bison.
 
 By the way, this joke is replaced by github every hour. via majik :)
