@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+> Why didn’t the skeleton cross the road? Because he had no guts.
 
 By the way, this joke is replaced by github every hour. via majik :)
