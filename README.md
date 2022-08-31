@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Parallel lines have so much in common. It’s a shame they’ll never meet.
+> Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
 
 By the way, this joke is replaced by github every hour. via majik :)
