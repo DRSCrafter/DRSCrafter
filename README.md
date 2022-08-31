@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+> Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
 
 By the way, this joke is replaced by github every hour. via majik :)
