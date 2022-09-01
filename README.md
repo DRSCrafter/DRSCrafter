@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the best way to carve?
-Whittle by whittle.
+> Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
 
 By the way, this joke is replaced by github every hour. via majik :)
