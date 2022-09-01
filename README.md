@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Hey, dad, did you get a haircut?" "No, I got them all cut."
+> Ever wondered why bees hum? It's because they don't know the words.
 
 By the way, this joke is replaced by github every hour. via majik :)
