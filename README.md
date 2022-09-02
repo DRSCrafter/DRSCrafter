@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+> How do robots eat guacamole? With computer chips.
 
 By the way, this joke is replaced by github every hour. via majik :)
