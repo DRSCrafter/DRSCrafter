@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I went to the doctor today and he told me I had type A blood but it was a type O.
+> Did you hear about the two thieves who stole a calendar? They each got six months.
 
 By the way, this joke is replaced by github every hour. via majik :)
