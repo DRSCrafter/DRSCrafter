@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of magic do cows believe in? MOODOO.
+> I invented a new word! Plagiarism!
 
 By the way, this joke is replaced by github every hour. via majik :)
