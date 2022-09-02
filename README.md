@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Never Trust Someone With Graph Paper...
-
-They're always plotting something.
+> My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
 
 By the way, this joke is replaced by github every hour. via majik :)
