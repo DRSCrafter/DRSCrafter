@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sore throats are a pain in the neck!
+> I went to the doctor today and he told me I had type A blood but it was a type O.
 
 By the way, this joke is replaced by github every hour. via majik :)
