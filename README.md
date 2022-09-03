@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+> How do you know if there’s an elephant under your bed? Your head hits the ceiling!
 
 By the way, this joke is replaced by github every hour. via majik :)
