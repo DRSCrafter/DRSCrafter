@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
->  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-
-
+> Did you hear about the cheese who saved the world? It was Legend-dairy!
 
 By the way, this joke is replaced by github every hour. via majik :)
