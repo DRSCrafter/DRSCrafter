@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+> I wish I could clean mirrors for a living. It's just something I can see myself doing.
 
 By the way, this joke is replaced by github every hour. via majik :)
