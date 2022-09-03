@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cheese who saved the world? It was Legend-dairy!
+> What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
 
 By the way, this joke is replaced by github every hour. via majik :)
