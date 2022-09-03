@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> You know that cemetery up the road? People are dying to get in there.
+> What did the Buffalo say to his little boy when he dropped him off at school? Bison.
 
 By the way, this joke is replaced by github every hour. via majik :)
