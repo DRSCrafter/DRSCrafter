@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fat psychic? A four-chin teller.
+> My son is studying to be a surgeon, I just hope he makes the cut.
 
 By the way, this joke is replaced by github every hour. via majik :)
