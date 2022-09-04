@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+> Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
 
 By the way, this joke is replaced by github every hour. via majik :)
