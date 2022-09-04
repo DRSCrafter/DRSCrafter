@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do locomotives know where they're going? Lots of training
+> How does the moon cut his hair? Eclipse it.
 
 By the way, this joke is replaced by github every hour. via majik :)
