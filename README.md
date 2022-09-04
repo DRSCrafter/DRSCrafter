@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the leading cause of dry skin? Towels
+> People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
 
 By the way, this joke is replaced by github every hour. via majik :)
