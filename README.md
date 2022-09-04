@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people eat light bulbs. They say it's a nice light snack.
+> Why is the ocean always blue? Because the shore never waves back.
 
 By the way, this joke is replaced by github every hour. via majik :)
