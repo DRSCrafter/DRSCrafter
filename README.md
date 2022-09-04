@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+> I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
 
 By the way, this joke is replaced by github every hour. via majik :)
