@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why can't a bicycle stand on its own? It's two-tired.
+> Did you hear about the submarine industry? It really took a dive...
 
 By the way, this joke is replaced by github every hour. via majik :)
