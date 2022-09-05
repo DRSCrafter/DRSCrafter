@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Our wedding was so beautiful, even the cake was in tiers.
+> I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
 
 By the way, this joke is replaced by github every hour. via majik :)
