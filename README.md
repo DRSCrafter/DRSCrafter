@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don't trust atoms. They make up everything.
+> Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
 
 By the way, this joke is replaced by github every hour. via majik :)
