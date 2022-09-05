@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I gave all my dead batteries away today, free of charge.
+> My dentist is the best, he even has a little plaque!
 
 By the way, this joke is replaced by github every hour. via majik :)
