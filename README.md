@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was the robot angry? Because someone kept pressing his buttons!
+> Why did the barber win the race? He took a short cut.
 
 By the way, this joke is replaced by github every hour. via majik :)
