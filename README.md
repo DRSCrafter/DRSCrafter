@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+> Somebody stole my Microsoft Office and they're going to pay - you have my Word.
 
 By the way, this joke is replaced by github every hour. via majik :)
