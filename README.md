@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the miner get fired from his job? He took it for granite...
+> Two guys walked into a bar, the third one ducked.
 
 By the way, this joke is replaced by github every hour. via majik :)
