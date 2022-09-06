@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When is a door not a door? When it's ajar.
+> Why did the half blind man fall in the well? Because he couldn't see that well!
 
 By the way, this joke is replaced by github every hour. via majik :)
