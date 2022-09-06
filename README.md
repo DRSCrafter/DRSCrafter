@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m only familiar with 25 letters in the English language. I don’t know why.
+> What did one plate say to the other plate? Dinner is on me!
 
 By the way, this joke is replaced by github every hour. via majik :)
