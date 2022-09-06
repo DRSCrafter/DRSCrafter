@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did one plate say to the other plate? Dinner is on me!
+> Our wedding was so beautiful, even the cake was in tiers.
 
 By the way, this joke is replaced by github every hour. via majik :)
