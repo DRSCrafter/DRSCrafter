@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the late tomato say to the early tomato? I’ll ketch up
+> When my wife told me to stop impersonating a flamingo, I had to put my foot down.
 
 By the way, this joke is replaced by github every hour. via majik :)
