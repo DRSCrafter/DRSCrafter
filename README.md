@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the half blind man fall in the well? Because he couldn't see that well!
+> Why did Mozart kill all his chickens?
+Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+
 
 By the way, this joke is replaced by github every hour. via majik :)
