@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do bees go to the bathroom?  The BP station.
+> I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
 
 By the way, this joke is replaced by github every hour. via majik :)
