@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+> I’m only familiar with 25 letters in the English language. I don’t know why.
 
 By the way, this joke is replaced by github every hour. via majik :)
