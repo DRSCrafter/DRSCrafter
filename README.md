@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Our wedding was so beautiful, even the cake was in tiers.
+> When is a door not a door? When it's ajar.
 
 By the way, this joke is replaced by github every hour. via majik :)
