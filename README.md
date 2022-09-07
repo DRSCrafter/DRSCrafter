@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When you have a bladder infection, urine trouble.
+> People are making apocalypse jokes like there’s no tomorrow.
 
 By the way, this joke is replaced by github every hour. via majik :)
