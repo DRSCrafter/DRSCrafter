@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do young cows eat lunch? In the calf-ateria.
+> When you have a bladder infection, urine trouble.
 
 By the way, this joke is replaced by github every hour. via majik :)
