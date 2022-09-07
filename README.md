@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> People are making apocalypse jokes like there’s no tomorrow.
+> Don't trust atoms. They make up everything.
 
 By the way, this joke is replaced by github every hour. via majik :)
