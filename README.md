@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+> Why does it take longer to get from 1st to 2nd base, than it does to get from 2nd to 3rd base? Because there’s a Shortstop in between!
 
 By the way, this joke is replaced by github every hour. via majik :)
