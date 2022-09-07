@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two guys walked into a bar, the third one ducked.
+> What did one plate say to the other plate? Dinner is on me!
 
 By the way, this joke is replaced by github every hour. via majik :)
