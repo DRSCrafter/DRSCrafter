@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> This morning I was wondering where the sun was, but then it dawned on me.
+> Did you know crocodiles could grow up to 15 feet? But most just have 4.
 
 By the way, this joke is replaced by github every hour. via majik :)
