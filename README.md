@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the 0 say to the 8? Nice belt.
+> Have you heard about corduroy pillows?  They're making headlines!
 
 By the way, this joke is replaced by github every hour. via majik :)
