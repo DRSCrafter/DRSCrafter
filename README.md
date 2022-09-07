@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+> I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
 
 By the way, this joke is replaced by github every hour. via majik :)
