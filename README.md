@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Past, present, and future walked into a bar.... It was tense.
+> Who is the coolest Doctor in the hospital? The hip Doctor!
 
 By the way, this joke is replaced by github every hour. via majik :)
