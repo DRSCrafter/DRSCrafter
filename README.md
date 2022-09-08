@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a beehive without the b's? An eehive.
+> Why did the feline fail the lie detector test? Because he be lion.
 
 By the way, this joke is replaced by github every hour. via majik :)
