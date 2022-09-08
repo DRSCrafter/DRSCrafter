@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What concert costs only 45 cents? 50 cent featuring Nickelback.
+> How many apples grow on a tree? All of them!
 
 By the way, this joke is replaced by github every hour. via majik :)
