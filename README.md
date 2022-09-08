@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the feline fail the lie detector test? Because he be lion.
+> Can February march? No, but April may.
 
 By the way, this joke is replaced by github every hour. via majik :)
