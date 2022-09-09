@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Want to hear a joke about construction? Nah, I'm still working on it.
+> What did the mountain climber name his son? Cliff.
 
 By the way, this joke is replaced by github every hour. via majik :)
