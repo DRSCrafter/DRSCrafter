@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The great thing about stationery shops is they're always in the same place...
+> I went to a Foo Fighters Concert once... It was Everlong...
 
 By the way, this joke is replaced by github every hour. via majik :)
