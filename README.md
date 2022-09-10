@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How does a scientist freshen their breath? With experi-mints!
+> Who did the wizard marry? His ghoul-friend
 
 By the way, this joke is replaced by github every hour. via majik :)
