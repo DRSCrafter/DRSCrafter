@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cheese who saved the world? It was Legend-dairy!
+> I'll tell you what often gets over looked... garden fences.
 
 By the way, this joke is replaced by github every hour. via majik :)
