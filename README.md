@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did one snowman say to the other snow man? Do you smell carrot?
+> What was a more important invention than the first telephone? The second one.
 
 By the way, this joke is replaced by github every hour. via majik :)
