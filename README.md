@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+> Is there a hole in your shoe? No… Then how’d you get your foot in it?
 
 By the way, this joke is replaced by github every hour. via majik :)
