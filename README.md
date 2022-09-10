@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I'll tell you what often gets over looked... garden fences.
+> How does a scientist freshen their breath? With experi-mints!
 
 By the way, this joke is replaced by github every hour. via majik :)
