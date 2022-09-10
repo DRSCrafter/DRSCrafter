@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+> What did one snowman say to the other snow man? Do you smell carrot?
 
 By the way, this joke is replaced by github every hour. via majik :)
