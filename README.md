@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They laughed when I said I wanted to be a comedian – they’re not laughing now.
+> What kind of pants do ghosts wear? Boo jeans.
 
 By the way, this joke is replaced by github every hour. via majik :)
