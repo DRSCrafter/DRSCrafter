@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I'll tell you what often gets over looked... garden fences.
+> I went to a Foo Fighters Concert once... It was Everlong...
 
 By the way, this joke is replaced by github every hour. via majik :)
