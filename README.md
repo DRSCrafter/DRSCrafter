@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+> What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
 
 By the way, this joke is replaced by github every hour. via majik :)
