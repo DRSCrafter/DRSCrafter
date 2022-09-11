@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to hate facial hair, but then it grew on me.
+> Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
 
 By the way, this joke is replaced by github every hour. via majik :)
