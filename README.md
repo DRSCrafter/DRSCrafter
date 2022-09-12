@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the grape do when he got stepped on? He let out a little wine.
+> What do you call a boy who stopped digging holes? Douglas.
 
 By the way, this joke is replaced by github every hour. via majik :)
