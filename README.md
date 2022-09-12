@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Writing with a broken pencil is pointless.
+> Breaking news! Energizer Bunny arrested – charged with battery.
 
 By the way, this joke is replaced by github every hour. via majik :)
