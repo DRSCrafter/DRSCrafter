@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many South Americans does it take to change a lightbulb? A Brazilian
+> Just read a few facts about frogs. They were ribbiting.
 
 By the way, this joke is replaced by github every hour. via majik :)
