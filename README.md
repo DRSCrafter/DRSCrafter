@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a boy who stopped digging holes? Douglas.
+> How many South Americans does it take to change a lightbulb? A Brazilian
 
 By the way, this joke is replaced by github every hour. via majik :)
