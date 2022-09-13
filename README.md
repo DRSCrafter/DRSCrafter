@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Who did the wizard marry? His ghoul-friend
+> Why don't sharks eat clowns?  Because they taste funny.
 
 By the way, this joke is replaced by github every hour. via majik :)
