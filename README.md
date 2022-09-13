@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+> It takes guts to be an organ donor.
 
 By the way, this joke is replaced by github every hour. via majik :)
