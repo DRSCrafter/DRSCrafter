@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+> The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
 
 By the way, this joke is replaced by github every hour. via majik :)
