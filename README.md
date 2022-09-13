@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don't sharks eat clowns?  Because they taste funny.
+> If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
 
 By the way, this joke is replaced by github every hour. via majik :)
