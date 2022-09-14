@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+> What concert costs only 45 cents? 50 cent featuring Nickelback.
 
 By the way, this joke is replaced by github every hour. via majik :)
