@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a sheep with no legs? A cloud.
+> Why can't eggs have love? They will break up too soon.
 
 By the way, this joke is replaced by github every hour. via majik :)
