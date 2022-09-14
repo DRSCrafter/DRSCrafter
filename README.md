@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A steak pun is a rare medium well done.
+> What is a tornado's favorite game to play? Twister!
 
 By the way, this joke is replaced by github every hour. via majik :)
