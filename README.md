@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+> What do you call a sheep with no legs? A cloud.
 
 By the way, this joke is replaced by github every hour. via majik :)
