@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What was the pumpkin’s favorite sport?
-
-Squash.
+> They're making a movie about clocks. It's about time
 
 By the way, this joke is replaced by github every hour. via majik :)
