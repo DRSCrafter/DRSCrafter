@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did one nut say as he chased another nut?  I'm a cashew!
+> Where do young cows eat lunch? In the calf-ateria.
 
 By the way, this joke is replaced by github every hour. via majik :)
