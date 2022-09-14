@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why can't eggs have love? They will break up too soon.
+> Sore throats are a pain in the neck!
 
 By the way, this joke is replaced by github every hour. via majik :)
