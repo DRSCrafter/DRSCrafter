@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I fear for the calendar, its days are numbered.
-
+> I met this girl on a dating site and, I don't know, we just clicked.
 
 By the way, this joke is replaced by github every hour. via majik :)
