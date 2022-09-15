@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+> What do you call an Argentinian with a rubber toe? Roberto
 
 By the way, this joke is replaced by github every hour. via majik :)
