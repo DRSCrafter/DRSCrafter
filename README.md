@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an Argentinian with a rubber toe? Roberto
+> Where was the Declaration of Independence signed?
+
+At the bottom! 
 
 By the way, this joke is replaced by github every hour. via majik :)
