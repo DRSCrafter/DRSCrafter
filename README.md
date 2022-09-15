@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew a guy who collected candy canes, they were all in mint condition
+> Why did the chicken get a penalty? For fowl play.
 
 By the way, this joke is replaced by github every hour. via majik :)
