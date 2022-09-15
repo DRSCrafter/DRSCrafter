@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was going to learn how to juggle, but I didn't have the balls.
+> When will the little snake arrive? I don't know but he won't be long...
 
 By the way, this joke is replaced by github every hour. via majik :)
