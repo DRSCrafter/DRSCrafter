@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Toasters were the first form of pop-up notifications.
+> If two vegans are having an argument, is it still considered beef?
 
 By the way, this joke is replaced by github every hour. via majik :)
