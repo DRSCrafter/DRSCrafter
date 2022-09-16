@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the tallest building in the world? The library – it’s got the most stories!
+> I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
 
 By the way, this joke is replaced by github every hour. via majik :)
