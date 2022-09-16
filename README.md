@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Never take advice from electrons. They are always negative.
+> I was in an 80's band called the prevention. We were better than the cure.
 
 By the way, this joke is replaced by github every hour. via majik :)
