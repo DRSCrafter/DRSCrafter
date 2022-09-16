@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What does an angry pepper do? It gets jalapeño face.
+> I thought about going on an all-almond diet. But that's just nuts.
 
 By the way, this joke is replaced by github every hour. via majik :)
