@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When will the little snake arrive? I don't know but he won't be long...
+> What did the traffic light say to the car as it passed? "Don't look I'm changing!"
 
 By the way, this joke is replaced by github every hour. via majik :)
