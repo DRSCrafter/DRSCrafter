@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+> What is the difference between ignorance and apathy?
+
+I don't know and I don't care.
 
 By the way, this joke is replaced by github every hour. via majik :)
