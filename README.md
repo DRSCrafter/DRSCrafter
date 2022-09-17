@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you make holy water? You boil the hell out of it.
+> A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
 
 By the way, this joke is replaced by github every hour. via majik :)
