@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don't sharks eat clowns?  Because they taste funny.
+> what do you call a dog that can do magic tricks? a labracadabrador
 
 By the way, this joke is replaced by github every hour. via majik :)
