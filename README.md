@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the octopus beat the shark in a fight? Because it was well armed.
+> How do you make holy water? You boil the hell out of it.
 
 By the way, this joke is replaced by github every hour. via majik :)
