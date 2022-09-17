@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was in an 80's band called the prevention. We were better than the cure.
+> Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
 
 By the way, this joke is replaced by github every hour. via majik :)
