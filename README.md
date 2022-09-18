@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+> Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
 
 By the way, this joke is replaced by github every hour. via majik :)
