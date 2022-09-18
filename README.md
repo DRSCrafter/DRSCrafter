@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+> I'll tell you what often gets over looked... garden fences.
 
 By the way, this joke is replaced by github every hour. via majik :)
