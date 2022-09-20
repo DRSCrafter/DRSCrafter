@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two silk worms had a race. They ended up in a tie.
+> What does a pirate pay for his corn? A buccaneer!
 
 By the way, this joke is replaced by github every hour. via majik :)
