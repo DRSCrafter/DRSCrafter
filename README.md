@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do hamburgers go to dance? The meat-ball.
+> Why do cows wear bells? Because their horns don't work.
 
 By the way, this joke is replaced by github every hour. via majik :)
