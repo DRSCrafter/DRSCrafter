@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Velcro… What a rip-off.
+> Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
 
 By the way, this joke is replaced by github every hour. via majik :)
