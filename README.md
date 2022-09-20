@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Ever wondered why bees hum? It's because they don't know the words.
+> I considered building the patio by myself. But I didn't have the stones.
 
 By the way, this joke is replaced by github every hour. via majik :)
