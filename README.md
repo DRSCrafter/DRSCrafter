@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I considered building the patio by myself. But I didn't have the stones.
+> Slept like a log last night … woke up in the fireplace.
 
 By the way, this joke is replaced by github every hour. via majik :)
