@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work for an origami company but they folded.
+> Ever wondered why bees hum? It's because they don't know the words.
 
 By the way, this joke is replaced by github every hour. via majik :)
