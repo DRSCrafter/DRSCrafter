@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man tried to sell me a coffin today. I told him that's the last thing I need.
+> When will the little snake arrive? I don't know but he won't be long...
 
 By the way, this joke is replaced by github every hour. via majik :)
