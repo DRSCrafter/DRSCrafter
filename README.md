@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+> When do doctors get angry? When they run out of patients.
 
 By the way, this joke is replaced by github every hour. via majik :)
