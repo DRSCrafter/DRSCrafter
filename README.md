@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I burned 2000 calories today, I left my food in the oven for too long.
+> What concert costs only 45 cents? 50 cent featuring Nickelback.
 
 By the way, this joke is replaced by github every hour. via majik :)
