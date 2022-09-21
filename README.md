@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+> I cut my finger chopping cheese, but I think that I may have grater problems.
 
 By the way, this joke is replaced by github every hour. via majik :)
