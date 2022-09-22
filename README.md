@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the kid cross the playground? To get to the other slide.
+> Why do cows wear bells? Because their horns don't work.
 
 By the way, this joke is replaced by github every hour. via majik :)
