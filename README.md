@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an elephant that doesn’t matter? An irrelephant.
+> A book just fell on my head. I only have my shelf to blame.
 
 By the way, this joke is replaced by github every hour. via majik :)
