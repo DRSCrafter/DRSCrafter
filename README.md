@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call your friend who stands in a hole? Phil.
+> Why did the kid cross the playground? To get to the other slide.
 
 By the way, this joke is replaced by github every hour. via majik :)
