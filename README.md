@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Pavlov's beard so soft?  Because he conditioned it.
+> I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
 
 By the way, this joke is replaced by github every hour. via majik :)
