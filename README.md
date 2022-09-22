@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Thanks for explaining the word "many" to me. It means a lot.
+> What do you call an alligator in a vest? An in-vest-igator!
 
 By the way, this joke is replaced by github every hour. via majik :)
