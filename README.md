@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A book just fell on my head. I only have my shelf to blame.
+> Thanks for explaining the word "many" to me. It means a lot.
 
 By the way, this joke is replaced by github every hour. via majik :)
