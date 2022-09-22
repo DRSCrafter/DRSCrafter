@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+> Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
 
 By the way, this joke is replaced by github every hour. via majik :)
