@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the shy pebble wish for? That she was a little boulder.
+> Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
 
 By the way, this joke is replaced by github every hour. via majik :)
