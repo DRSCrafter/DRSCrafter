@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+> I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
 
 By the way, this joke is replaced by github every hour. via majik :)
