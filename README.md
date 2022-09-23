@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me to attach two pieces of wood together... I totally nailed it!
+> What did the shy pebble wish for? That she was a little boulder.
 
 By the way, this joke is replaced by github every hour. via majik :)
