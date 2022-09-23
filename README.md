@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Remember, the best angle to approach a problem from is the "try" angle.
+> Did you hear the one about the giant pickle?  He was kind of a big dill.
 
 By the way, this joke is replaced by github every hour. via majik :)
