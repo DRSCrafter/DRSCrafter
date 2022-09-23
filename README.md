@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do pirates not know the alphabet? They always get stuck at "C".
+> What do you do when you see a space man?
+Park your car, man.
 
 By the way, this joke is replaced by github every hour. via majik :)
