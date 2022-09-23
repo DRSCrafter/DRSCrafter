@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you do when you see a space man?
-Park your car, man.
+> Did you hear about the guy who invented Lifesavers? They say he made a mint.
 
 By the way, this joke is replaced by github every hour. via majik :)
