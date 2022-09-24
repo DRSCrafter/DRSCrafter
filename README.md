@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+> I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
 
 By the way, this joke is replaced by github every hour. via majik :)
