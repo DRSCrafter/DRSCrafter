@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I have kleptomania, but when it gets bad, I take something for it.
+> How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
 
 By the way, this joke is replaced by github every hour. via majik :)
