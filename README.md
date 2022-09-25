@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was in an 80's band called the prevention. We were better than the cure.
+> I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
 
 By the way, this joke is replaced by github every hour. via majik :)
