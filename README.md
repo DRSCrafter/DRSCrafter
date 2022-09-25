@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+> What's the difference between a seal and a sea lion?
+An ion! 
 
 By the way, this joke is replaced by github every hour. via majik :)
