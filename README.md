@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+> Who is the coolest Doctor in the hospital? The hip Doctor!
 
 By the way, this joke is replaced by github every hour. via majik :)
