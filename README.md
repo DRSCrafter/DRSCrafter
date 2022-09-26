@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+> It doesn't matter how much you push the envelope. It will still be stationary.
 
 By the way, this joke is replaced by github every hour. via majik :)
