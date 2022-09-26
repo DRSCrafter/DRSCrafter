@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you get a baby alien to sleep?  You rocket.
+> What kind of pants do ghosts wear? Boo jeans.
 
 By the way, this joke is replaced by github every hour. via majik :)
