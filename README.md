@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fly without wings? A walk.
+> Why do choirs keep buckets handy? So they can carry their tune
 
 By the way, this joke is replaced by github every hour. via majik :)
