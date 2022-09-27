@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+> Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
 
 By the way, this joke is replaced by github every hour. via majik :)
