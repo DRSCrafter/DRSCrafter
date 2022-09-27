@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> This is my step ladder. I never knew my real ladder.
+> I met this girl on a dating site and, I don't know, we just clicked.
 
 By the way, this joke is replaced by github every hour. via majik :)
