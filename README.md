@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of music do planets listen to? Nep-tunes.
+> Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
 
 By the way, this joke is replaced by github every hour. via majik :)
