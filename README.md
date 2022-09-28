@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My New Years resolution is to stop leaving things so late.
+> What do you do on a remote island? Try and find the TV island it belongs to.
 
 By the way, this joke is replaced by github every hour. via majik :)
