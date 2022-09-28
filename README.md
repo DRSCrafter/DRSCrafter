@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+> How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
 
 By the way, this joke is replaced by github every hour. via majik :)
