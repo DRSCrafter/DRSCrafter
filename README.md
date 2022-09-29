@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a vampire's favorite fruit? A blood orange.
+> What do you call a droid that takes the long way around? R2 detour.
 
 By the way, this joke is replaced by github every hour. via majik :)
