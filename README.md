@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I started a new business making yachts in my attic this year...the sails are going through the roof
+> I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
 
 By the way, this joke is replaced by github every hour. via majik :)
