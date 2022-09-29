@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a droid that takes the long way around? R2 detour.
+> I cut my finger chopping cheese, but I think that I may have grater problems.
 
 By the way, this joke is replaced by github every hour. via majik :)
