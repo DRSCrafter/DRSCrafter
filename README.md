@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+> I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
 
 By the way, this joke is replaced by github every hour. via majik :)
