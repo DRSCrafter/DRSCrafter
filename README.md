@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I cut my finger chopping cheese, but I think that I may have grater problems.
+> Why are pirates called pirates? Because they arrr!
 
 By the way, this joke is replaced by github every hour. via majik :)
