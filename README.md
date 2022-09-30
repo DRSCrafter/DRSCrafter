@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+> My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
 
 By the way, this joke is replaced by github every hour. via majik :)
