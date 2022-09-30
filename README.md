@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I don't trust stairs. They're always up to something.
+> I couldn't get a reservation at the library. They were completely booked.
 
 By the way, this joke is replaced by github every hour. via majik :)
