@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the coffee file a police report? It got mugged.
+> A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
 
 By the way, this joke is replaced by github every hour. via majik :)
