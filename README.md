@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the Red light say to the Green light? Don't look at me I'm changing!
+> what do you call a dog that can do magic tricks? a labracadabrador
 
 By the way, this joke is replaced by github every hour. via majik :)
