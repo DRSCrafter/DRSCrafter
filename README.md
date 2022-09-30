@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s Forest Gump’s Facebook password? 1forest1
+> I don't trust stairs. They're always up to something.
 
 By the way, this joke is replaced by github every hour. via majik :)
