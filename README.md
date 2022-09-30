@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are pirates called pirates? Because they arrr!
+> Dad I’m hungry’ … ‘Hi hungry I’m dad
 
 By the way, this joke is replaced by github every hour. via majik :)
