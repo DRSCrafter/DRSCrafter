@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's blue and not very heavy?  Light blue.
+> What did the fish say when it swam into a wall? Damn!
 
 By the way, this joke is replaced by github every hour. via majik :)
