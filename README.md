@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a guy lying on your doorstep? Matt.
+> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
 
 By the way, this joke is replaced by github every hour. via majik :)
