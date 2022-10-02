@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did one plate say to the other plate? Dinner is on me!
+> Who is the coolest Doctor in the hospital? The hip Doctor!
 
 By the way, this joke is replaced by github every hour. via majik :)
