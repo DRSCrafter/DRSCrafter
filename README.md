@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When you have a bladder infection, urine trouble.
+> What do you call a guy lying on your doorstep? Matt.
 
 By the way, this joke is replaced by github every hour. via majik :)
