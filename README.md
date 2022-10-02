@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Who is the coolest Doctor in the hospital? The hip Doctor!
+> How do you make a hankie dance? Put a little boogie in it.
 
 By the way, this joke is replaced by github every hour. via majik :)
