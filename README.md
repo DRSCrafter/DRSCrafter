@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of music do planets listen to? Nep-tunes.
+> Why do choirs keep buckets handy? So they can carry their tune
 
 By the way, this joke is replaced by github every hour. via majik :)
