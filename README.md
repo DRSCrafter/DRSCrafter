@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+> What was the pumpkin’s favorite sport?
+
+Squash.
 
 By the way, this joke is replaced by github every hour. via majik :)
