@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the two thieves who stole a calendar? They each got six months.
+> What kind of music do mummy's like? Rap
 
 By the way, this joke is replaced by github every hour. via majik :)
