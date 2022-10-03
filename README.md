@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When do doctors get angry? When they run out of patients.
+> Why was Pavlov's beard so soft?  Because he conditioned it.
 
 By the way, this joke is replaced by github every hour. via majik :)
