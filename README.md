@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Pavlov's beard so soft?  Because he conditioned it.
+> Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
 
 By the way, this joke is replaced by github every hour. via majik :)
