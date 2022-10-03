@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Leather is great for sneaking around because it's made of hide.
+> What’s E.T. short for? He’s only got little legs.
 
 By the way, this joke is replaced by github every hour. via majik :)
