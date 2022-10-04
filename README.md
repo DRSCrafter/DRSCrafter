@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+> There’s a new type of broom out, it’s sweeping the nation.
 
 By the way, this joke is replaced by github every hour. via majik :)
