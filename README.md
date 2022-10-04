@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people eat light bulbs. They say it's a nice light snack.
+> Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
 
 By the way, this joke is replaced by github every hour. via majik :)
