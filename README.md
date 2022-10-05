@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> You can't trust a ladder. It will always let you down
+> Two peanuts were walking down the street. One was a salted.
 
 By the way, this joke is replaced by github every hour. via majik :)
