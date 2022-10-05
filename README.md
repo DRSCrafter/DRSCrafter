@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fake noodle? An impasta.
+> What was a more important invention than the first telephone? The second one.
 
 By the way, this joke is replaced by github every hour. via majik :)
