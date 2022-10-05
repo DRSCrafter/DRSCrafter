@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the opera singer go sailing? They wanted to hit the high Cs.
+> Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
 
 By the way, this joke is replaced by github every hour. via majik :)
