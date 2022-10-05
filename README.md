@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I invented a new word! Plagiarism!
+> Egyptians claimed to invent the guitar, but they were such lyres.﻿
 
 By the way, this joke is replaced by github every hour. via majik :)
