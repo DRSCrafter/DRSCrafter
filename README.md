@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’ll tell you something about German sausages, they’re the wurst
+> I wish I could clean mirrors for a living. It's just something I can see myself doing.
 
 By the way, this joke is replaced by github every hour. via majik :)
