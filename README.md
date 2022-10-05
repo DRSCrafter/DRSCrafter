@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+> What did the left eye say to the right eye? Between us, something smells!
 
 By the way, this joke is replaced by github every hour. via majik :)
