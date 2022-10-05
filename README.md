@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two peanuts were walking down the street. One was a salted.
+> I invented a new word! Plagiarism!
 
 By the way, this joke is replaced by github every hour. via majik :)
