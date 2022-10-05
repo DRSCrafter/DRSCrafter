@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call someone with no nose? Nobody knows.
+> My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
 
 By the way, this joke is replaced by github every hour. via majik :)
