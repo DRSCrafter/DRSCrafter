@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is it so windy inside an arena? All those fans.
+> I don't trust stairs. They're always up to something.
 
 By the way, this joke is replaced by github every hour. via majik :)
