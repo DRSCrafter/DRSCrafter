@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew a guy who collected candy canes, they were all in mint condition
+> Why is the new Kindle screen textured to look like paper? So you feel write at home.
 
 By the way, this joke is replaced by github every hour. via majik :)
