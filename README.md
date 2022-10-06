@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+> What do you call a duck that gets all A's? A wise quacker.
 
 By the way, this joke is replaced by github every hour. via majik :)
