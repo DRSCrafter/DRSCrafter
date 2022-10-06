@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How come the stadium got hot after the game? Because all of the fans left.
+> Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
 
 By the way, this joke is replaced by github every hour. via majik :)
