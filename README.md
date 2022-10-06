@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The best time on a clock is 6:30--hands down.
+> Why did the opera singer go sailing? They wanted to hit the high Cs.
 
 By the way, this joke is replaced by github every hour. via majik :)
