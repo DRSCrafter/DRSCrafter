@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+> "I'm sorry." "Hi sorry, I'm dad"
 
 By the way, this joke is replaced by github every hour. via majik :)
