@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew a guy who collected candy canes, they were all in mint condition
+> What’s Forest Gump’s Facebook password? 1forest1
 
 By the way, this joke is replaced by github every hour. via majik :)
