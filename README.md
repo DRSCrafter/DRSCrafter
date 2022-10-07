@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "I'm sorry." "Hi sorry, I'm dad"
+> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
 
 By the way, this joke is replaced by github every hour. via majik :)
