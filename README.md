@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
 
 By the way, this joke is replaced by github every hour. via majik :)
