@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+> Why do pumpkins sit on people’s porches?
+
+They have no hands to knock on the door.
 
 By the way, this joke is replaced by github every hour. via majik :)
