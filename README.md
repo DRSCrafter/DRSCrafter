@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do computers and air conditioners have in common? They both become useless when you open windows.
+> What do you call a group of killer whales playing instruments? An Orca-stra.
 
 By the way, this joke is replaced by github every hour. via majik :)
