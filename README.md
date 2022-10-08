@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+> Have you heard about the film "Constipation", you probably haven't because it's not out yet.
 
 By the way, this joke is replaced by github every hour. via majik :)
