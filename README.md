@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s E.T. short for? He’s only got little legs.
+> Where do you learn to make banana splits? At sundae school.
 
 By the way, this joke is replaced by github every hour. via majik :)
