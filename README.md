@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call someone with no nose? Nobody knows.
+> Why did the tree go to the dentist? It needed a root canal.
 
 By the way, this joke is replaced by github every hour. via majik :)
