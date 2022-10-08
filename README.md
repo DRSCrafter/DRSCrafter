@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do vegetarian zombies eat? Grrrrrainnnnnssss.
+> Why are oranges the smartest fruit? Because they are made to concentrate. 
 
 By the way, this joke is replaced by github every hour. via majik :)
