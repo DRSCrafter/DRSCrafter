@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What has ears but cannot hear? A field of corn.
+> What do you do when your bunny gets wet? You get your hare dryer.
 
 By the way, this joke is replaced by github every hour. via majik :)
