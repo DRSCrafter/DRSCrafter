@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you do when your bunny gets wet? You get your hare dryer.
+> “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
 
 By the way, this joke is replaced by github every hour. via majik :)
