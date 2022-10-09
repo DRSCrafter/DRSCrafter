@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the tomato blush? Because it saw the salad dressing.
+> What is bread's favorite number?  Leaven.
 
 By the way, this joke is replaced by github every hour. via majik :)
