@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me to have a good day. So I went home...
+> What do you call a bee that lives in America? A USB.
 
 By the way, this joke is replaced by github every hour. via majik :)
