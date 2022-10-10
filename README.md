@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do hamburgers go to dance? The meat-ball.
+> Is there a hole in your shoe? No… Then how’d you get your foot in it?
 
 By the way, this joke is replaced by github every hour. via majik :)
