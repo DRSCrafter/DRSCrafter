@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the guy who invented Lifesavers? They say he made a mint.
+> Atheism is a non-prophet organisation.
 
 By the way, this joke is replaced by github every hour. via majik :)
