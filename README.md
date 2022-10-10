@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why didn't the number 4 get into the nightclub? Because he is 2 square.
+> What do you call a fish with no eyes? A fsh.
 
 By the way, this joke is replaced by github every hour. via majik :)
