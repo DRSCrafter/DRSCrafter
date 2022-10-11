@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call corn that joins the army? Kernel.
+> Why did the belt go to prison? He held up a pair of pants!
 
 By the way, this joke is replaced by github every hour. via majik :)
