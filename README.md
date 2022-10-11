@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+> What do you get when you cross a bee and a sheep? A bah-humbug.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
