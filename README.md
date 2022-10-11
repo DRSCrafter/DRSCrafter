@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+> Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
 
 By the way, this joke is replaced by github every hour. via majik :)
