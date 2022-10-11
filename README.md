@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of pants do ghosts wear? Boo jeans.
+> How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
 
 By the way, this joke is replaced by github every hour. via majik :)
