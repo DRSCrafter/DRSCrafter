@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+> Why are oranges the smartest fruit? Because they are made to concentrate. 
 
 By the way, this joke is replaced by github every hour. via majik :)
