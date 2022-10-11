@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+> Why did the miner get fired from his job? He took it for granite...
 
 By the way, this joke is replaced by github every hour. via majik :)
