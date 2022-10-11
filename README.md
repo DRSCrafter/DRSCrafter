@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+> Why did the barber win the race? He took a short cut.
 
 By the way, this joke is replaced by github every hour. via majik :)
