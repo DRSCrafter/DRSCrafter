@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The shovel was a ground-breaking invention.
+> Why do ducks make great detectives? They always quack the case.
 
 By the way, this joke is replaced by github every hour. via majik :)
