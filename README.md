@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+> Why did the house go to the doctor? It was having window panes.
 
 By the way, this joke is replaced by github every hour. via majik :)
