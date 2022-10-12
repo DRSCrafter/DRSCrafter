@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work in a shoe recycling shop. It was sole destroying.
+> What concert costs only 45 cents? 50 cent featuring Nickelback.
 
 By the way, this joke is replaced by github every hour. via majik :)
