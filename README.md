@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are oranges the smartest fruit? Because they are made to concentrate. 
+> What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
 
 By the way, this joke is replaced by github every hour. via majik :)
