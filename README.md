@@ -61,8 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's large, grey, and doesn't matter?
-An irrelephant.
+> What did the hat say to the scarf?
+You can hang around. I'll just go on ahead.
 
 
 By the way, this joke is replaced by github every hour. via majik :)
