@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whoever invented the knock-knock joke should get a no bell prize.
+> What’s brown and sounds like a bell? Dung!
 
 By the way, this joke is replaced by github every hour. via majik :)
