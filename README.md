@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+> What did one snowman say to the other snow man? Do you smell carrot?
 
 By the way, this joke is replaced by github every hour. via majik :)
