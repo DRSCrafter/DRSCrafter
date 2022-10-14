@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sore throats are a pain in the neck!
+> What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
 
 By the way, this joke is replaced by github every hour. via majik :)
