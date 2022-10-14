@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> There’s a new type of broom out, it’s sweeping the nation.
+> The great thing about stationery shops is they're always in the same place...
 
 By the way, this joke is replaced by github every hour. via majik :)
