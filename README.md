@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+> Why can't you use "Beef stew" as a password? Because it's not stroganoff.
 
 By the way, this joke is replaced by github every hour. via majik :)
