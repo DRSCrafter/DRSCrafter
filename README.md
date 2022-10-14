@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> ‘Put the cat out’ … ‘I didn’t realize it was on fire
+> A Skeleton walked into a bar he said I need a beer and a mop
 
 By the way, this joke is replaced by github every hour. via majik :)
