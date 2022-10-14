@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I wish I could clean mirrors for a living. It's just something I can see myself doing.
+> What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
 
 By the way, this joke is replaced by github every hour. via majik :)
