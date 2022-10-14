@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A Skeleton walked into a bar he said I need a beer and a mop
+> Sore throats are a pain in the neck!
 
 By the way, this joke is replaced by github every hour. via majik :)
