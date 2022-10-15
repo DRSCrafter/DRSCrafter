@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard about corduroy pillows?  They're making headlines!
+> A magician was driving down the street and then he turned into a driveway.
 
 By the way, this joke is replaced by github every hour. via majik :)
