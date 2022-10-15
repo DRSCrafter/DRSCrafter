@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the man run around his bed? Because he was trying to catch up on his sleep!
+> Why did the worker get fired from the orange juice factory? Lack of concentration.
 
 By the way, this joke is replaced by github every hour. via majik :)
