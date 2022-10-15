@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+> I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
 
 By the way, this joke is replaced by github every hour. via majik :)
