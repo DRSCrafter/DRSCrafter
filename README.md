@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I tried to write a chemistry joke, but could never get a reaction.
+> What did the calculator say to the student? You can count on me.
 
 By the way, this joke is replaced by github every hour. via majik :)
