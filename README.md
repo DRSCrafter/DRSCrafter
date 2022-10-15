@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an alligator in a vest? An in-vest-igator!
+> I tried to write a chemistry joke, but could never get a reaction.
 
 By the way, this joke is replaced by github every hour. via majik :)
