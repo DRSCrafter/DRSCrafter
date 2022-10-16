@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where did Captain Hook get his hook? From a second hand store.
+> Do I enjoy making courthouse puns? Guilty
 
 By the way, this joke is replaced by github every hour. via majik :)
