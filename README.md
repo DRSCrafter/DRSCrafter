@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was wondering why the frisbee was getting bigger, then it hit me.
+> Did you know crocodiles could grow up to 15 feet? But most just have 4.
 
 By the way, this joke is replaced by github every hour. via majik :)
