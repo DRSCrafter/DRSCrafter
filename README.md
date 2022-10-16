@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the tree go to the dentist? It needed a root canal.
+> Did you hear about the bread factory burning down? They say the business is toast.
 
 By the way, this joke is replaced by github every hour. via majik :)
