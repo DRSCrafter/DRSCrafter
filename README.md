@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+> I've just written a song about a tortilla. Well, it is more of a rap really.
 
 By the way, this joke is replaced by github every hour. via majik :)
