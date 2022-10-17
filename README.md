@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do hens stay fit? They always egg-cercise!
+> What did the ocean say to the beach? Thanks for all the sediment.
 
 By the way, this joke is replaced by github every hour. via majik :)
