@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the mountain climber name his son? Cliff.
+> What biscuit does a short person like? Shortbread. 
 
 By the way, this joke is replaced by github every hour. via majik :)
