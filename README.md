@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How come the stadium got hot after the game? Because all of the fans left.
+> What time did the man go to the dentist? Tooth hurt-y.
 
 By the way, this joke is replaced by github every hour. via majik :)
