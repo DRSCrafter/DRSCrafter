@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Dad, I'm cold."
-"Go stand in the corner, I hear it's 90 degrees."
+> To the person who stole my anti-depressant pills: I hope you're happy now.
 
 By the way, this joke is replaced by github every hour. via majik :)
