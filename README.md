@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the bread factory burning down? They say the business is toast.
+> Why did the octopus beat the shark in a fight? Because it was well armed.
 
 By the way, this joke is replaced by github every hour. via majik :)
