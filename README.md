@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the ocean say to the beach? Thanks for all the sediment.
+> Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
 
 By the way, this joke is replaced by github every hour. via majik :)
