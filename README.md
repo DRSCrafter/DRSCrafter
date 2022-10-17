@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the octopus beat the shark in a fight? Because it was well armed.
+> What lies at the bottom of the ocean and twitches? A nervous wreck.
 
 By the way, this joke is replaced by github every hour. via majik :)
