@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My New Years resolution is to stop leaving things so late.
+> Why did the kid cross the playground? To get to the other slide.
 
 By the way, this joke is replaced by github every hour. via majik :)
