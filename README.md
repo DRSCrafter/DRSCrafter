@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What was a more important invention than the first telephone? The second one.
+> What do you call a magician who has lost their magic? Ian.
 
 By the way, this joke is replaced by github every hour. via majik :)
