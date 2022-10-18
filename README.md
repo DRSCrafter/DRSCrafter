@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> This furniture store keeps emailing me, all I wanted was one night stand!
+> “My Dog has no nose.” “How does he smell?” “Awful”
 
 By the way, this joke is replaced by github every hour. via majik :)
