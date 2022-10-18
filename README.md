@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What time did the man go to the dentist? Tooth hurt-y.
+> How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
 
 By the way, this joke is replaced by github every hour. via majik :)
