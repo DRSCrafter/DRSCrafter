@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+> Shout out to my grandma, that's the only way she can hear.
 
 By the way, this joke is replaced by github every hour. via majik :)
