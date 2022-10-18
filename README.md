@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> You know that cemetery up the road? People are dying to get in there.
+> My New Years resolution is to stop leaving things so late.
 
 By the way, this joke is replaced by github every hour. via majik :)
