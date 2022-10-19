@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+> What is the hardest part about sky diving? The ground.
 
 By the way, this joke is replaced by github every hour. via majik :)
