@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+> What is the tallest building in the world? The library – it’s got the most stories!
 
 By the way, this joke is replaced by github every hour. via majik :)
