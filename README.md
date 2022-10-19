@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard about corduroy pillows?  They're making headlines!
+> Why are pirates called pirates? Because they arrr!
 
 By the way, this joke is replaced by github every hour. via majik :)
