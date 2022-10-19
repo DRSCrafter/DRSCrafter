@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are pirates called pirates? Because they arrr!
+> Did you hear about the two thieves who stole a calendar? They each got six months.
 
 By the way, this joke is replaced by github every hour. via majik :)
