@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the hardest part about sky diving? The ground.
+> Have you heard about corduroy pillows?  They're making headlines!
 
 By the way, this joke is replaced by github every hour. via majik :)
