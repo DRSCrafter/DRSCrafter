@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Who did the wizard marry? His ghoul-friend
+> Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
 
 By the way, this joke is replaced by github every hour. via majik :)
