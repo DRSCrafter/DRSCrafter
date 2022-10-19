@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the two thieves who stole a calendar? They each got six months.
+> Why did the chicken get a penalty? For fowl play.
 
 By the way, this joke is replaced by github every hour. via majik :)
