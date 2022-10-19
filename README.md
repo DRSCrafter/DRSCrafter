@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do locomotives know where they're going? Lots of training
+> Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
 
 By the way, this joke is replaced by github every hour. via majik :)
