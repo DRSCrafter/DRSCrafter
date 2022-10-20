@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+> what do you call a dog that can do magic tricks? a labracadabrador
 
 By the way, this joke is replaced by github every hour. via majik :)
