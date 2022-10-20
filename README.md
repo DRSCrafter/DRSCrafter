@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+> As I suspected, someone has been adding soil to my garden. The plot thickens.
 
 By the way, this joke is replaced by github every hour. via majik :)
