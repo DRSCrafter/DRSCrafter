@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+> There's not really any training for garbagemen. They just pick things up as they go.
 
 By the way, this joke is replaced by github every hour. via majik :)
