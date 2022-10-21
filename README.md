@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+> I cut my finger chopping cheese, but I think that I may have grater problems.
 
 By the way, this joke is replaced by github every hour. via majik :)
