@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's large, grey, and doesn't matter?
-An irrelephant.
-
+> Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
 
 By the way, this joke is replaced by github every hour. via majik :)
