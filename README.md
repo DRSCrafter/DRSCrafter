@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I cut my finger chopping cheese, but I think that I may have grater problems.
+> What's large, grey, and doesn't matter?
+An irrelephant.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
