@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> what do you call a dog that can do magic tricks? a labracadabrador
+> I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
 
 By the way, this joke is replaced by github every hour. via majik :)
