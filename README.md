@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of pants do ghosts wear? Boo jeans.
+> If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
 
 By the way, this joke is replaced by github every hour. via majik :)
