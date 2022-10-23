@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+> Someone broke into my house last night and stole my limbo trophy. How low can you go?
 
 By the way, this joke is replaced by github every hour. via majik :)
