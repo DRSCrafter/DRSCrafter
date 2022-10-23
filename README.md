@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you organize a space party? You planet.
+> What musical instrument is found in the bathroom? A tuba toothpaste.
 
 By the way, this joke is replaced by github every hour. via majik :)
