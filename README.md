@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+> The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
 
 By the way, this joke is replaced by github every hour. via majik :)
