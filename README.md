@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you get when you cross a rabbit with a water hose? Hare spray.
+> I used to think I was indecisive, but now I'm not sure.
 
 By the way, this joke is replaced by github every hour. via majik :)
