@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+> Do you know where you can get chicken broth in bulk? The stock market.
 
 By the way, this joke is replaced by github every hour. via majik :)
