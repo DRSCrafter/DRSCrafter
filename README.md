@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's blue and not very heavy?  Light blue.
+> R.I.P. boiled water. You will be mist.
 
 By the way, this joke is replaced by github every hour. via majik :)
