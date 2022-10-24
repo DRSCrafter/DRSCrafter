@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+> Why did the opera singer go sailing? They wanted to hit the high Cs.
 
 By the way, this joke is replaced by github every hour. via majik :)
