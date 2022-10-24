@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Recent survey revealed 6 out of 7 dwarf's aren't happy.
+> A book just fell on my head. I only have my shelf to blame.
 
 By the way, this joke is replaced by github every hour. via majik :)
