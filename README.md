@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How come a man driving a train got struck by lightning? He was a good conductor.
+> I tried to write a chemistry joke, but could never get a reaction.
 
 By the way, this joke is replaced by github every hour. via majik :)
