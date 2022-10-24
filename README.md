@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I tried to write a chemistry joke, but could never get a reaction.
+> I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
 
 By the way, this joke is replaced by github every hour. via majik :)
