@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Hostess: Do you have a preference of where you sit?
-Dad: Down.
+> Recent survey revealed 6 out of 7 dwarf's aren't happy.
 
 By the way, this joke is replaced by github every hour. via majik :)
