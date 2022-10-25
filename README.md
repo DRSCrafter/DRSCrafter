@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+> What do you call a cow with two legs? Lean beef.
 
 By the way, this joke is replaced by github every hour. via majik :)
