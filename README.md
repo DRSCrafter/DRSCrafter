@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+> What does a pirate pay for his corn? A buccaneer!
 
 By the way, this joke is replaced by github every hour. via majik :)
