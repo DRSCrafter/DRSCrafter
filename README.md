@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two silk worms had a race. They ended up in a tie.
+> Why are mummys scared of vacation? They're afraid to unwind.
 
 By the way, this joke is replaced by github every hour. via majik :)
