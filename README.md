@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are mummys scared of vacation? They're afraid to unwind.
+> Why did Dracula lie in the wrong coffin? He made a grave mistake.
 
 By the way, this joke is replaced by github every hour. via majik :)
