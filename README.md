@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+> I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
 
 By the way, this joke is replaced by github every hour. via majik :)
