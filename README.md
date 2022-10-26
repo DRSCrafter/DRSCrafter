@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+> How come the stadium got hot after the game? Because all of the fans left.
 
 By the way, this joke is replaced by github every hour. via majik :)
