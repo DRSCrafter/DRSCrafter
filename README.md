@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whoever invented the knock-knock joke should get a no bell prize.
+> I couldn't figure out how the seat belt worked. Then it just clicked.
 
 By the way, this joke is replaced by github every hour. via majik :)
