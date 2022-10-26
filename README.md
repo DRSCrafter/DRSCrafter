@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> You can't run through a camp site. You can only ran, because it's past tents.
+> Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
 
 By the way, this joke is replaced by github every hour. via majik :)
