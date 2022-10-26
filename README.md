@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
+> A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
 
 By the way, this joke is replaced by github every hour. via majik :)
