@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+> Why did the chicken get a penalty? For fowl play.
 
 By the way, this joke is replaced by github every hour. via majik :)
