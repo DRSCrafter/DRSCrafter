@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> This is my step ladder. I never knew my real ladder.
+> I made a belt out of watches once... It was a waist of time.
 
 By the way, this joke is replaced by github every hour. via majik :)
