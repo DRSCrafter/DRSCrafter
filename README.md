@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+> I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
 
 By the way, this joke is replaced by github every hour. via majik :)
