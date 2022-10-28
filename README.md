@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+> This is my step ladder. I never knew my real ladder.
 
 By the way, this joke is replaced by github every hour. via majik :)
