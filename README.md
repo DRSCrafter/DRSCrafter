@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> How do you make Lady Gaga cry? Poker face. 
 
 By the way, this joke is replaced by github every hour. via majik :)
