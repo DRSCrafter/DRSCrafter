@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work for a soft drink can crusher. It was soda pressing.
+> Why couldn't the kid see the pirate movie? Because it was rated arrr!
 
 By the way, this joke is replaced by github every hour. via majik :)
