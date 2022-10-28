@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+> What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
 
 By the way, this joke is replaced by github every hour. via majik :)
