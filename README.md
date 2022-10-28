@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+> What did the ocean say to the shore? Nothing, it just waved.
 
 By the way, this joke is replaced by github every hour. via majik :)
