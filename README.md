@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I started a new business making yachts in my attic this year...the sails are going through the roof
+> What is a tornado's favorite game to play? Twister!
 
 By the way, this joke is replaced by github every hour. via majik :)
