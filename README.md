@@ -61,12 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Wife: Honey I’m pregnant.
-
-Me: Well…. what do we do now?
-
-Wife: Well, I guess we should go to a baby doctor.
-
-Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+> How do you know if there’s an elephant under your bed? Your head hits the ceiling!
 
 By the way, this joke is replaced by github every hour. via majik :)
