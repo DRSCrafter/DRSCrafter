@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the kid cross the playground? To get to the other slide.
+> Archaeology really is a career in ruins.
 
 By the way, this joke is replaced by github every hour. via majik :)
