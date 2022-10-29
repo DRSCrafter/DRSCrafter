@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+> Me and my mates are in a band called Duvet. We're a cover band.
 
 By the way, this joke is replaced by github every hour. via majik :)
