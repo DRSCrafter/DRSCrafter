@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Me and my mates are in a band called Duvet. We're a cover band.
+> Why do birds fly south for the winter? Because it's too far to walk.
 
 By the way, this joke is replaced by github every hour. via majik :)
