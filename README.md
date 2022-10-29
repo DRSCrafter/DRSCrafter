@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It's difficult to say what my wife does, she sells sea shells by the sea shore.
+> Want to hear a chimney joke? Got stacks of em! First one's on the house
 
 By the way, this joke is replaced by github every hour. via majik :)
