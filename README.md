@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
+> Why was the picture sent to prison? It was framed.
 
 By the way, this joke is replaced by github every hour. via majik :)
