@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Want to hear a chimney joke? Got stacks of em! First one's on the house
+> Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
 
 By the way, this joke is replaced by github every hour. via majik :)
