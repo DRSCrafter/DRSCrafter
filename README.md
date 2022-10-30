@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of pants do ghosts wear? Boo jeans.
+> A Skeleton walked into a bar he said I need a beer and a mop
 
 By the way, this joke is replaced by github every hour. via majik :)
