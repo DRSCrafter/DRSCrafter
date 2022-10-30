@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What was the pumpkin’s favorite sport?
-
-Squash.
+> I used to be a banker, but I lost interest.
 
 By the way, this joke is replaced by github every hour. via majik :)
