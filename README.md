@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where was the Declaration of Independence signed?
-
-At the bottom! 
+> What kind of pants do ghosts wear? Boo jeans.
 
 By the way, this joke is replaced by github every hour. via majik :)
