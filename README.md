@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A cannibal is someone who is fed up with people.
+> To the person who stole my anti-depressant pills: I hope you're happy now.
 
 By the way, this joke is replaced by github every hour. via majik :)
