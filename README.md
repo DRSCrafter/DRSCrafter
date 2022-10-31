@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> People are making apocalypse jokes like there’s no tomorrow.
+> My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
 
 By the way, this joke is replaced by github every hour. via majik :)
