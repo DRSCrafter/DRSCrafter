@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you get when you cross a chicken with a skunk? A fowl smell!
+> Hostess: Do you have a preference of where you sit?
+Dad: Down.
 
 By the way, this joke is replaced by github every hour. via majik :)
