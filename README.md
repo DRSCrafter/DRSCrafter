@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+> People are making apocalypse jokes like there’s no tomorrow.
 
 By the way, this joke is replaced by github every hour. via majik :)
