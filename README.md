@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a tornado's favorite game to play? Twister!
+> Why do bees have sticky hair? Because they use honey combs!
 
 By the way, this joke is replaced by github every hour. via majik :)
