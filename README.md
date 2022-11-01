@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an alligator in a vest? An in-vest-igator!
+> Did you hear about the submarine industry? It really took a dive...
 
 By the way, this joke is replaced by github every hour. via majik :)
