@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+> What animal is always at a game of cricket? A bat.
 
 By the way, this joke is replaced by github every hour. via majik :)
