@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I cut my finger chopping cheese, but I think that I may have grater problems.
+> When is a door not a door? When it's ajar.
 
 By the way, this joke is replaced by github every hour. via majik :)
