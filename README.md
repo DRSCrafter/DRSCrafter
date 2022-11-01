@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When is a door not a door? When it's ajar.
+> What is a witch's favorite subject in school? Spelling!
 
 By the way, this joke is replaced by github every hour. via majik :)
