@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I wish I could clean mirrors for a living. It's just something I can see myself doing.
+> Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
 
 By the way, this joke is replaced by github every hour. via majik :)
