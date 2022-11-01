@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a witch's favorite subject in school? Spelling!
+> What do you call cheese by itself? Provolone.
 
 By the way, this joke is replaced by github every hour. via majik :)
