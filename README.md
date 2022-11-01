@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+> Do you know where you can get chicken broth in bulk? The stock market.
 
 By the way, this joke is replaced by github every hour. via majik :)
