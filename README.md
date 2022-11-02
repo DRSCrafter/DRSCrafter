@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the melons plan a big wedding? Because they cantaloupe!
+> How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
 
 By the way, this joke is replaced by github every hour. via majik :)
