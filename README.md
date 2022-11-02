@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was wondering why the frisbee was getting bigger, then it hit me.
+> Why did the melons plan a big wedding? Because they cantaloupe!
 
 By the way, this joke is replaced by github every hour. via majik :)
