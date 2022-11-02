@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I burned 2000 calories today, I left my food in the oven for too long.
+> “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
 
 By the way, this joke is replaced by github every hour. via majik :)
