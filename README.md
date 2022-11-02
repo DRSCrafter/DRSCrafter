@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Milk is also the fastest liquid on earth – its pasteurized before you even see it
+> I was wondering why the frisbee was getting bigger, then it hit me.
 
 By the way, this joke is replaced by github every hour. via majik :)
