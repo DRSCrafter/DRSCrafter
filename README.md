@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you do on a remote island? Try and find the TV island it belongs to.
+> I got fired from a florist, apparently I took too many leaves.
 
 By the way, this joke is replaced by github every hour. via majik :)
