@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+> I burned 2000 calories today, I left my food in the oven for too long.
 
 By the way, this joke is replaced by github every hour. via majik :)
