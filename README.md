@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What lies at the bottom of the ocean and twitches? A nervous wreck.
+> I’m only familiar with 25 letters in the English language. I don’t know why.
 
 By the way, this joke is replaced by github every hour. via majik :)
