@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I asked a frenchman if he played video games. He said "Wii"
+> How does Darth Vader like his toast? On the dark side.
 
 By the way, this joke is replaced by github every hour. via majik :)
