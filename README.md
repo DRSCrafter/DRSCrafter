@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you know that ghosts call their true love their ghoul-friend?
+> Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
 
 By the way, this joke is replaced by github every hour. via majik :)
