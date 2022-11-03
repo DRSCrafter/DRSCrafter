@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Want to hear a chimney joke? Got stacks of em! First one's on the house
+> Egyptians claimed to invent the guitar, but they were such lyres.﻿
 
 By the way, this joke is replaced by github every hour. via majik :)
