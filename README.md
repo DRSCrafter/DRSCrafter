@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+> Did you know that ghosts call their true love their ghoul-friend?
 
 By the way, this joke is replaced by github every hour. via majik :)
