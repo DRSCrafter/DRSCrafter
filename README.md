@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call your friend who stands in a hole? Phil.
+> Want to hear a chimney joke? Got stacks of em! First one's on the house
 
 By the way, this joke is replaced by github every hour. via majik :)
