@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The first time I got a universal remote control I thought to myself, "This changes everything"
+> I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
 
 By the way, this joke is replaced by github every hour. via majik :)
