@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+> What do you call your friend who stands in a hole? Phil.
 
 By the way, this joke is replaced by github every hour. via majik :)
