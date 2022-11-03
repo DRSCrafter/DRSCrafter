@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Thanks for explaining the word "many" to me. It means a lot.
+> How much does a hipster weigh? An instagram.
 
 By the way, this joke is replaced by github every hour. via majik :)
