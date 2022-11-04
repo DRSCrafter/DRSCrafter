@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I ordered a chicken and an egg from Amazon. I'll let you know.
+> Past, present, and future walked into a bar.... It was tense.
 
 By the way, this joke is replaced by github every hour. via majik :)
