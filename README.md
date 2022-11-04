@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Past, present, and future walked into a bar.... It was tense.
+> They tried to make a diamond shaped like a duck. It quacked under the pressure.
 
 By the way, this joke is replaced by github every hour. via majik :)
