@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you find Will Smith in the snow?  Look for fresh prints.
+> What is a vampire's favorite fruit? A blood orange.
 
 By the way, this joke is replaced by github every hour. via majik :)
