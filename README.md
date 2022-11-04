@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+> How do you find Will Smith in the snow?  Look for fresh prints.
 
 By the way, this joke is replaced by github every hour. via majik :)
