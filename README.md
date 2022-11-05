@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> what do you call a dog that can do magic tricks? a labracadabrador
+> What do you get when you cross a snowman with a vampire? Frostbite.
 
 By the way, this joke is replaced by github every hour. via majik :)
