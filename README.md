@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+> Did you hear about the guy who invented Lifesavers? They say he made a mint.
 
 By the way, this joke is replaced by github every hour. via majik :)
