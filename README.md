@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+> Is there a hole in your shoe? No… Then how’d you get your foot in it?
 
 By the way, this joke is replaced by github every hour. via majik :)
