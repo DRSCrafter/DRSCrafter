@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A cannibal is someone who is fed up with people.
+> Why was the robot angry? Because someone kept pressing his buttons!
 
 By the way, this joke is replaced by github every hour. via majik :)
