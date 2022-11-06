@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of award did the dentist receive? A little plaque.
+> How was the snow globe feeling after the storm? A little shaken.
 
 By the way, this joke is replaced by github every hour. via majik :)
