@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+> What do you get when you cross a chicken with a skunk? A fowl smell!
 
 By the way, this joke is replaced by github every hour. via majik :)
