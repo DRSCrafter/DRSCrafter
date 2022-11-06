@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two guys walked into a bar, the third one ducked.
+> A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
 
 By the way, this joke is replaced by github every hour. via majik :)
