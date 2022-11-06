@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Me and my mates are in a band called Duvet. We're a cover band.
+> Why is it so windy inside an arena? All those fans.
 
 By the way, this joke is replaced by github every hour. via majik :)
