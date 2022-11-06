@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How was the snow globe feeling after the storm? A little shaken.
+> I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
 
 By the way, this joke is replaced by github every hour. via majik :)
