@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Do you know where you can get chicken broth in bulk? The stock market.
+> Can I watch the TV? Dad: Yes, but don’t turn it on.
 
 By the way, this joke is replaced by github every hour. via majik :)
