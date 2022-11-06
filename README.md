@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whoever invented the knock-knock joke should get a no bell prize.
+> What do you call a bear with no teeth? A gummy bear!
 
 By the way, this joke is replaced by github every hour. via majik :)
