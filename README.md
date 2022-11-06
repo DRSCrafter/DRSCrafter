@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is it so windy inside an arena? All those fans.
+> I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
 
 By the way, this joke is replaced by github every hour. via majik :)
