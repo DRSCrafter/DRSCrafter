@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I've just written a song about a tortilla. Well, it is more of a rap really.
+> What did the green grape say to the purple grape?
+BREATH!!
 
 By the way, this joke is replaced by github every hour. via majik :)
