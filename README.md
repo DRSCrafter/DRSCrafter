@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the dog say to the two trees? Bark bark.
+> What cheese can never be yours? Nacho cheese.
 
 By the way, this joke is replaced by github every hour. via majik :)
