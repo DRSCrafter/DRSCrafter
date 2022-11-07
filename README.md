@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How was the snow globe feeling after the storm? A little shaken.
+> What did the dog say to the two trees? Bark bark.
 
 By the way, this joke is replaced by github every hour. via majik :)
