@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the green grape say to the purple grape?
-BREATH!!
+> What do I look like? A JOKE MACHINE!?
 
 By the way, this joke is replaced by github every hour. via majik :)
