@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Which is the fastest growing city in the world? Dublin'
+> How was the snow globe feeling after the storm? A little shaken.
 
 By the way, this joke is replaced by github every hour. via majik :)
