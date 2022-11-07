@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the difference between ignorance and apathy?
-
-I don't know and I don't care.
+> Why did the house go to the doctor? It was having window panes.
 
 By the way, this joke is replaced by github every hour. via majik :)
