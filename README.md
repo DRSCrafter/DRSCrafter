@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Pavlov's beard so soft?  Because he conditioned it.
+> "I'll call you later." Don't call me later, call me Dad.
 
 By the way, this joke is replaced by github every hour. via majik :)
