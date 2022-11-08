@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+> In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
 
 By the way, this joke is replaced by github every hour. via majik :)
