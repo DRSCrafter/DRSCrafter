@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a group of disorganized cats? A cat-tastrophe.
+> I fear for the calendar, its days are numbered.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
