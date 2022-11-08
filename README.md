@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+> What do you get when you cross a chicken with a skunk? A fowl smell!
 
 By the way, this joke is replaced by github every hour. via majik :)
