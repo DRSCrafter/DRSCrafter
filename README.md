@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is there always a gate around cemeteries? Because people are always dying to get in.
+> How come the stadium got hot after the game? Because all of the fans left.
 
 By the way, this joke is replaced by github every hour. via majik :)
