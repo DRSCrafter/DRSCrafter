@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+> I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
 
 By the way, this joke is replaced by github every hour. via majik :)
