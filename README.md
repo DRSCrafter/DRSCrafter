@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a dad that has fallen through the ice? A Popsicle.
+> Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
 
 By the way, this joke is replaced by github every hour. via majik :)
