@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How does a dyslexic poet write? Inverse.
+> Chances are if you' ve seen one shopping center, you've seen a mall.
 
 By the way, this joke is replaced by github every hour. via majik :)
