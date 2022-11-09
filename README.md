@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Chances are if you' ve seen one shopping center, you've seen a mall.
+> I was going to get a brain transplant, but I changed my mind
 
 By the way, this joke is replaced by github every hour. via majik :)
