@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do computers and air conditioners have in common? They both become useless when you open windows.
+> Why is there always a gate around cemeteries? Because people are always dying to get in.
 
 By the way, this joke is replaced by github every hour. via majik :)
