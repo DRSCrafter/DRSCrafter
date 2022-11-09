@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+> What do computers and air conditioners have in common? They both become useless when you open windows.
 
 By the way, this joke is replaced by github every hour. via majik :)
