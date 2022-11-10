@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the girl smear peanut butter on the road? To go with the traffic jam.
+> If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
 
 By the way, this joke is replaced by github every hour. via majik :)
