@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+> Conjunctivitis.com – now that’s a site for sore eyes.
 
 By the way, this joke is replaced by github every hour. via majik :)
