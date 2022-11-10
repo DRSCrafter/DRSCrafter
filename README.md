@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+> I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
 
 By the way, this joke is replaced by github every hour. via majik :)
