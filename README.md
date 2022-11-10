@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Can I watch the TV? Dad: Yes, but don’t turn it on.
+> I tried to write a chemistry joke, but could never get a reaction.
 
 By the way, this joke is replaced by github every hour. via majik :)
