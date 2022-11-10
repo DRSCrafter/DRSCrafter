@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the ocean say to the shore? Nothing, it just waved.
+> Slept like a log last night … woke up in the fireplace.
 
 By the way, this joke is replaced by github every hour. via majik :)
