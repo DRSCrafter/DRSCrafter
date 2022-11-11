@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+> Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
 
 By the way, this joke is replaced by github every hour. via majik :)
