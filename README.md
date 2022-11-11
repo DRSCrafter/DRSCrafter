@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Recent survey revealed 6 out of 7 dwarf's aren't happy.
+> Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
 
 By the way, this joke is replaced by github every hour. via majik :)
