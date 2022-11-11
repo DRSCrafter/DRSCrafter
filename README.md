@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I couldn't figure out how the seat belt worked. Then it just clicked.
+> Recent survey revealed 6 out of 7 dwarf's aren't happy.
 
 By the way, this joke is replaced by github every hour. via majik :)
