@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How are false teeth like stars? They come out at night!
+> What do you get if you put a duck in a cement mixer? Quacks in the pavement.
 
 By the way, this joke is replaced by github every hour. via majik :)
