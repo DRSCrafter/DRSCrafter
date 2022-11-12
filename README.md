@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to hate facial hair, but then it grew on me.
+> Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
 
 By the way, this joke is replaced by github every hour. via majik :)
