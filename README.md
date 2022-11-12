@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A book just fell on my head. I only have my shelf to blame.
+> What’s Forest Gump’s Facebook password? 1forest1
 
 By the way, this joke is replaced by github every hour. via majik :)
