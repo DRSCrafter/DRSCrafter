@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+> A book just fell on my head. I only have my shelf to blame.
 
 By the way, this joke is replaced by github every hour. via majik :)
