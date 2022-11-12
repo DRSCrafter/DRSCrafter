@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Egyptians claimed to invent the guitar, but they were such lyres.﻿
+> Me and my mates are in a band called Duvet. We're a cover band.
 
 By the way, this joke is replaced by github every hour. via majik :)
