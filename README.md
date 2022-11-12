@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Hostess: Do you have a preference of where you sit?
-Dad: Down.
+> Egyptians claimed to invent the guitar, but they were such lyres.﻿
 
 By the way, this joke is replaced by github every hour. via majik :)
