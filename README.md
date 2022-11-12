@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+> Coffee has a tough time at my house, every morning it gets mugged.
 
 By the way, this joke is replaced by github every hour. via majik :)
