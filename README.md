@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+> If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
 
 By the way, this joke is replaced by github every hour. via majik :)
