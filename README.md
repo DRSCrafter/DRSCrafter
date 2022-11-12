@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+> A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
 
 By the way, this joke is replaced by github every hour. via majik :)
