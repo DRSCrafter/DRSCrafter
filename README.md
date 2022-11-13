@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+> I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
 
 By the way, this joke is replaced by github every hour. via majik :)
