@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got fired from the transmission factor, turns out I didn't put on enough shifts...
+> Why didn't the number 4 get into the nightclub? Because he is 2 square.
 
 By the way, this joke is replaced by github every hour. via majik :)
