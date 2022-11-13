@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an elephant that doesn’t matter? An irrelephant.
+> You know what they say about cliffhangers...
 
 By the way, this joke is replaced by github every hour. via majik :)
