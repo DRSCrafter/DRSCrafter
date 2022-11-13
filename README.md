@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> What did one snowman say to the other snow man? Do you smell carrot?
 
 By the way, this joke is replaced by github every hour. via majik :)
