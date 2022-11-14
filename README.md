@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+> I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
 
 By the way, this joke is replaced by github every hour. via majik :)
