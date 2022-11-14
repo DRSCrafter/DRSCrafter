@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A farmer had 297 cows, when he rounded them up, he found he had 300
+> I considered building the patio by myself. But I didn't have the stones.
 
 By the way, this joke is replaced by github every hour. via majik :)
