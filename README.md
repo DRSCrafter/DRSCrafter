@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Santa's little helper feeling depressed? Because he has low elf esteem.
-
+> Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
 
 By the way, this joke is replaced by github every hour. via majik :)
