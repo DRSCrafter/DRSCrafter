@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard of the band 1023MB? They haven't got a gig yet.
+> What is bread's favorite number?  Leaven.
 
 By the way, this joke is replaced by github every hour. via majik :)
