@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+> Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
