@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+> Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
 
 By the way, this joke is replaced by github every hour. via majik :)
