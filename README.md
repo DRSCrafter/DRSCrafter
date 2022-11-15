@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a witch's favorite subject in school? Spelling!
+> I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
 
 By the way, this joke is replaced by github every hour. via majik :)
