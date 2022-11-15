@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How much does a hipster weigh? An instagram.
+> Where do sheep go to get their hair cut? The baa-baa shop.
 
 By the way, this joke is replaced by github every hour. via majik :)
