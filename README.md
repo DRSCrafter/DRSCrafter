@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a pile of cats?  A Meowtain.
+> Did you hear the one about the giant pickle?  He was kind of a big dill.
 
 By the way, this joke is replaced by github every hour. via majik :)
