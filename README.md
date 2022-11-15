@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of pants do ghosts wear? Boo jeans.
+> Why do bees have sticky hair? Because they use honey combs!
 
 By the way, this joke is replaced by github every hour. via majik :)
