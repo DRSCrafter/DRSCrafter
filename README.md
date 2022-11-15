@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Geology rocks, but Geography is where it's at!
+> What is a witch's favorite subject in school? Spelling!
 
 By the way, this joke is replaced by github every hour. via majik :)
