@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+> How does Darth Vader like his toast? On the dark side.
 
 By the way, this joke is replaced by github every hour. via majik :)
