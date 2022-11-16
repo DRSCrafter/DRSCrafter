@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+> Why did the chicken get a penalty? For fowl play.
 
 By the way, this joke is replaced by github every hour. via majik :)
