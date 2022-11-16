@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an elephant that doesn’t matter? An irrelephant.
+> I got fired from the transmission factor, turns out I didn't put on enough shifts...
 
 By the way, this joke is replaced by github every hour. via majik :)
