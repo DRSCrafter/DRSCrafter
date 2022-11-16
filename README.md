@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the chicken get a penalty? For fowl play.
+> I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
 
 By the way, this joke is replaced by github every hour. via majik :)
