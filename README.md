@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the joke about the wandering nun? She was a roman catholic.
+> How do you get two whales in a car? Start in England and drive West.
 
 By the way, this joke is replaced by github every hour. via majik :)
