@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many tickles does it take to tickle an octopus? Ten-tickles!
+> A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
 
 By the way, this joke is replaced by github every hour. via majik :)
