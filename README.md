@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are fish so smart? Because they live in schools!
+> Did you know that ghosts call their true love their ghoul-friend?
 
 By the way, this joke is replaced by github every hour. via majik :)
