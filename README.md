@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I cut my finger chopping cheese, but I think that I may have grater problems.
+> How many tickles does it take to tickle an octopus? Ten-tickles!
 
 By the way, this joke is replaced by github every hour. via majik :)
