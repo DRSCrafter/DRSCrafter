@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of pants do ghosts wear? Boo jeans.
+> Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
 
 By the way, this joke is replaced by github every hour. via majik :)
