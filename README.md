@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I just broke my guitar. It's okay, I won't fret
+> What do you call a droid that takes the long way around? R2 detour.
 
 By the way, this joke is replaced by github every hour. via majik :)
