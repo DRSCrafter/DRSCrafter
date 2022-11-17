@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+> What did the 0 say to the 8? Nice belt.
 
 By the way, this joke is replaced by github every hour. via majik :)
