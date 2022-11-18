@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I made a belt out of watches once... It was a waist of time.
+> I used to work in a shoe recycling shop. It was sole destroying.
 
 By the way, this joke is replaced by github every hour. via majik :)
