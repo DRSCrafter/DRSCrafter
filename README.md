@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Past, present, and future walked into a bar.... It was tense.
+> I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
 
 By the way, this joke is replaced by github every hour. via majik :)
