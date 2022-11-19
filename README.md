@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+> What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
 
 By the way, this joke is replaced by github every hour. via majik :)
