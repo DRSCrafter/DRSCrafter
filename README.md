@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Can February march? No, but April may.
+> Why do mathematicians hate the U.S.? Because it's indivisible.
 
 By the way, this joke is replaced by github every hour. via majik :)
