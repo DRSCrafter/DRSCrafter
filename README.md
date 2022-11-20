@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+> Doctor: Do you want to hear the good news or the bad news?
+Patient: Good news please.
+Doctor: we're naming a disease after you.
 
 By the way, this joke is replaced by github every hour. via majik :)
