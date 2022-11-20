@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the piece of bread say to the knife? Butter me up.
+> The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
 
 By the way, this joke is replaced by github every hour. via majik :)
