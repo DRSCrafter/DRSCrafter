@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My pet mouse 'Elvis' died last night. He was caught in a trap..
+> How can you tell a vampire has a cold? They start coffin.
 
 By the way, this joke is replaced by github every hour. via majik :)
