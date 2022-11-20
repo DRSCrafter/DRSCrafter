@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do bees hum? Because they don't know the words.
+> I was going to learn how to juggle, but I didn't have the balls.
 
 By the way, this joke is replaced by github every hour. via majik :)
