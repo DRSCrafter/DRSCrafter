@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do birds fly south for the winter? Because it's too far to walk.
+> I had a dream that I was a muffler last night. I woke up exhausted!
 
 By the way, this joke is replaced by github every hour. via majik :)
