@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call corn that joins the army? Kernel.
+> Why do bees hum? Because they don't know the words.
 
 By the way, this joke is replaced by github every hour. via majik :)
