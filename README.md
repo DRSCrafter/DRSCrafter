@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Dad, can you put my shoes on? I don't think they'll fit me.
+> What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
 
 By the way, this joke is replaced by github every hour. via majik :)
