@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+> Why did the cookie cry?
+Because his mother was a wafer so long
 
 By the way, this joke is replaced by github every hour. via majik :)
