@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+> Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
 
 By the way, this joke is replaced by github every hour. via majik :)
