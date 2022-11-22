@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the shy pebble wish for? That she was a little boulder.
+> Why was the robot angry? Because someone kept pressing his buttons!
 
 By the way, this joke is replaced by github every hour. via majik :)
