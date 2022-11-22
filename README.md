@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The best time on a clock is 6:30--hands down.
+> Why do cows wear bells? Because their horns don't work.
 
 By the way, this joke is replaced by github every hour. via majik :)
