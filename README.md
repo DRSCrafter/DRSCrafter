@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I fear for the calendar, its days are numbered.
-
+> You will never guess what Elsa did to the balloon. She let it go.
 
 By the way, this joke is replaced by github every hour. via majik :)
