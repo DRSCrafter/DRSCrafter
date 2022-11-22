@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the two thieves who stole a calendar? They each got six months.
+> The best time on a clock is 6:30--hands down.
 
 By the way, this joke is replaced by github every hour. via majik :)
