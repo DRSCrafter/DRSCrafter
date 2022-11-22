@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+> The best time on a clock is 6:30--hands down.
 
 By the way, this joke is replaced by github every hour. via majik :)
