@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Mountains aren't just funny, they are hill areas
+> I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
 
 By the way, this joke is replaced by github every hour. via majik :)
