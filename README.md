@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+> I was wondering why the frisbee was getting bigger, then it hit me.
 
 By the way, this joke is replaced by github every hour. via majik :)
