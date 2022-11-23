@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+> Why can't you use "Beef stew" as a password? Because it's not stroganoff.
 
 By the way, this joke is replaced by github every hour. via majik :)
