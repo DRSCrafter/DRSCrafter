@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+> What did the left eye say to the right eye? Between us, something smells!
 
 By the way, this joke is replaced by github every hour. via majik :)
