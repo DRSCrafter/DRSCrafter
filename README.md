@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the worker get fired from the orange juice factory? Lack of concentration.
+> What do you call a dad that has fallen through the ice? A Popsicle.
 
 By the way, this joke is replaced by github every hour. via majik :)
