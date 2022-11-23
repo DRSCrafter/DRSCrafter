@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s E.T. short for? He’s only got little legs.
+> Why did the worker get fired from the orange juice factory? Lack of concentration.
 
 By the way, this joke is replaced by github every hour. via majik :)
