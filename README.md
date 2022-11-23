@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+> Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
 
 By the way, this joke is replaced by github every hour. via majik :)
