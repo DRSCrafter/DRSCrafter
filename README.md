@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> When does a joke become a dad joke? When it becomes apparent.
+> Why did the melons plan a big wedding? Because they cantaloupe!
 
 By the way, this joke is replaced by github every hour. via majik :)
