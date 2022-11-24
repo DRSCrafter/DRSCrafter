@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the difference between a seal and a sea lion?
-An ion! 
+> What did one snowman say to the other snow man? Do you smell carrot?
 
 By the way, this joke is replaced by github every hour. via majik :)
