@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the melons plan a big wedding? Because they cantaloupe!
+> What is this movie about? It is about 2 hours long.
 
 By the way, this joke is replaced by github every hour. via majik :)
