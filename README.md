@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is this movie about? It is about 2 hours long.
+> "Hey, dad, did you get a haircut?" "No, I got them all cut."
 
 By the way, this joke is replaced by github every hour. via majik :)
