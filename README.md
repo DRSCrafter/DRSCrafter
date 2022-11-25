@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do choirs keep buckets handy? So they can carry their tune
+> What did Michael Jackson name his denim store?    Billy Jeans!
 
 By the way, this joke is replaced by github every hour. via majik :)
