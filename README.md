@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a nervous javelin thrower? Shakespeare.
+> What do you do on a remote island? Try and find the TV island it belongs to.
 
 By the way, this joke is replaced by github every hour. via majik :)
