@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the mountain climber name his son? Cliff.
+> Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
 
 By the way, this joke is replaced by github every hour. via majik :)
