@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call an elephant that doesn’t matter? An irrelephant.
+> How many seconds are in a year?
+12.
+January 2nd, February 2nd, March 2nd, April 2nd.... etc
 
 By the way, this joke is replaced by github every hour. via majik :)
