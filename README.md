@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many tickles does it take to tickle an octopus? Ten-tickles!
+> Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
 
 By the way, this joke is replaced by github every hour. via majik :)
