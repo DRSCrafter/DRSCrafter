@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does Superman get invited to dinners? Because he is a Supperhero.
+> A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
 
 By the way, this joke is replaced by github every hour. via majik :)
