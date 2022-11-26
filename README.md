@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Cosmetic surgery used to be such a taboo subject.
-Now you can talk about Botox and nobody raises an eyebrow.
+> How do locomotives know where they're going? Lots of training
 
 By the way, this joke is replaced by github every hour. via majik :)
