@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Bad at golf? Join the club.
+> Want to hear a joke about construction? Nah, I'm still working on it.
 
 By the way, this joke is replaced by github every hour. via majik :)
