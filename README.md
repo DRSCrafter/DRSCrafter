@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+> Every night at 11:11, I make a wish that someone will come fix my broken clock.
 
 By the way, this joke is replaced by github every hour. via majik :)
