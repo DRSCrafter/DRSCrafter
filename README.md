@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+> Somebody stole my Microsoft Office and they're going to pay - you have my Word.
 
 By the way, this joke is replaced by github every hour. via majik :)
