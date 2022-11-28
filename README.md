@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+> What do bees do after they are married? They go on a honeymoon.
 
 By the way, this joke is replaced by github every hour. via majik :)
