@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do bees have sticky hair? Because they use honey combs!
+> Have you heard of the band 1023MB? They haven't got a gig yet.
 
 By the way, this joke is replaced by github every hour. via majik :)
