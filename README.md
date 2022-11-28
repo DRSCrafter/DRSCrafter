@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How come the stadium got hot after the game? Because all of the fans left.
+> I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
 
 By the way, this joke is replaced by github every hour. via majik :)
