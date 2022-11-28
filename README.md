@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's brown and sticky? A stick.
+> I’ll tell you something about German sausages, they’re the wurst
 
 By the way, this joke is replaced by github every hour. via majik :)
