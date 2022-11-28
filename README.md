@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> There's not really any training for garbagemen. They just pick things up as they go.
+> I started a new business making yachts in my attic this year...the sails are going through the roof
 
 By the way, this joke is replaced by github every hour. via majik :)
