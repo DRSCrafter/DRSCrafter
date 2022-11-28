@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whoever invented the knock-knock joke should get a no bell prize.
+> It's difficult to say what my wife does, she sells sea shells by the sea shore.
 
 By the way, this joke is replaced by github every hour. via majik :)
