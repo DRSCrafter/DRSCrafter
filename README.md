@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the one about the giant pickle?  He was kind of a big dill.
+> What is red and smells like blue paint?
+Red paint!
 
 By the way, this joke is replaced by github every hour. via majik :)
