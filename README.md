@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you fix a broken pizza? With tomato paste.
+> What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
 
 By the way, this joke is replaced by github every hour. via majik :)
