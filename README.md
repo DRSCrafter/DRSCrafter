@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+> Coffee has a tough time at my house, every morning it gets mugged.
 
 By the way, this joke is replaced by github every hour. via majik :)
