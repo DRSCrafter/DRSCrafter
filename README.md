@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's large, grey, and doesn't matter?
-An irrelephant.
-
+> They laughed when I said I wanted to be a comedian – they’re not laughing now.
 
 By the way, this joke is replaced by github every hour. via majik :)
