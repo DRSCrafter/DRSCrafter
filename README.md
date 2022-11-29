@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> They laughed when I said I wanted to be a comedian – they’re not laughing now.
+> What do you call someone with no nose? Nobody knows.
 
 By the way, this joke is replaced by github every hour. via majik :)
