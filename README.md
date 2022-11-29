@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+> What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
 
 By the way, this joke is replaced by github every hour. via majik :)
