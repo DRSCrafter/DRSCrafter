@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+> “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
 
 By the way, this joke is replaced by github every hour. via majik :)
