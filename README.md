@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+> They're making a movie about clocks. It's about time
 
 By the way, this joke is replaced by github every hour. via majik :)
