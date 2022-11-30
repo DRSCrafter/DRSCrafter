@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to be addicted to the hokey pokey, but I turned myself around.
+> What did the Red light say to the Green light? Don't look at me I'm changing!
 
 By the way, this joke is replaced by github every hour. via majik :)
