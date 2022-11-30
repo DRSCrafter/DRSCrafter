@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+> I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+I have no words to describe how angry I am.
 
 By the way, this joke is replaced by github every hour. via majik :)
