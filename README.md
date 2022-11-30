@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-"Pop," goes the weasel.
+> Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
 
 By the way, this joke is replaced by github every hour. via majik :)
