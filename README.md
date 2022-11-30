@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+> I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
 
 By the way, this joke is replaced by github every hour. via majik :)
