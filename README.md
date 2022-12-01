@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do rabbits go after they get married? On a bunny-moon.
+> *Reversing the car* "Ah, this takes me back"
 
 By the way, this joke is replaced by github every hour. via majik :)
