@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+> What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
 
 By the way, this joke is replaced by github every hour. via majik :)
