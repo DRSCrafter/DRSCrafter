@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+> I used to think I was indecisive, but now I'm not sure.
 
 By the way, this joke is replaced by github every hour. via majik :)
