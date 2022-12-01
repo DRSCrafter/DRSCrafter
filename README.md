@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a careful wolf? Aware wolf.
+> I'm glad I know sign language, it's pretty handy.
 
 By the way, this joke is replaced by github every hour. via majik :)
