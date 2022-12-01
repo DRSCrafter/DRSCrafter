@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How are false teeth like stars? They come out at night!
+> The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
 
 By the way, this joke is replaced by github every hour. via majik :)
