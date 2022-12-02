@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the hat say to the scarf?
-You can hang around. I'll just go on ahead.
-
+> If two vegans are having an argument, is it still considered beef?
 
 By the way, this joke is replaced by github every hour. via majik :)
