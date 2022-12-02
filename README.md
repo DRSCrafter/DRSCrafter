@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I'm glad I know sign language, it's pretty handy.
+> What is the least spoken language in the world?
+Sign Language
 
 By the way, this joke is replaced by github every hour. via majik :)
