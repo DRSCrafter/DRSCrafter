@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> People are making apocalypse jokes like there’s no tomorrow.
+> How can you tell a vampire has a cold? They start coffin.
 
 By the way, this joke is replaced by github every hour. via majik :)
