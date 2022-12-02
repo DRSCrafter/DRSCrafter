@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the least spoken language in the world?
-Sign Language
+> How does a dyslexic poet write? Inverse.
 
 By the way, this joke is replaced by github every hour. via majik :)
