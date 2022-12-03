@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did Dracula lie in the wrong coffin? He made a grave mistake.
+> I used to work in a shoe recycling shop. It was sole destroying.
 
 By the way, this joke is replaced by github every hour. via majik :)
