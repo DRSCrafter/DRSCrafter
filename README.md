@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Cosmetic surgery used to be such a taboo subject.
-Now you can talk about Botox and nobody raises an eyebrow.
+> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
 
 By the way, this joke is replaced by github every hour. via majik :)
