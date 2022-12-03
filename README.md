@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+> I used to work for a soft drink can crusher. It was soda pressing.
 
 By the way, this joke is replaced by github every hour. via majik :)
