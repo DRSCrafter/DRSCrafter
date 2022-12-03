@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to work for a soft drink can crusher. It was soda pressing.
+> What do you call a cow with no legs? Ground beef.
 
 By the way, this joke is replaced by github every hour. via majik :)
