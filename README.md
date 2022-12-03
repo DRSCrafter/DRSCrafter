@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A book just fell on my head. I only have my shelf to blame.
+> My pet mouse 'Elvis' died last night. He was caught in a trap..
 
 By the way, this joke is replaced by github every hour. via majik :)
