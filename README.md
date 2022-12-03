@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+> What do prisoners use to call each other? Cell phones.
 
 By the way, this joke is replaced by github every hour. via majik :)
