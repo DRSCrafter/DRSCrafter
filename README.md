@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the kidnapping at school? It's ok, he woke up.
+> Q: What did the spaghetti say to the other spaghetti?
+A: Pasta la vista, baby!
 
 By the way, this joke is replaced by github every hour. via majik :)
