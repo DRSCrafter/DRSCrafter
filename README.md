@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are ghosts bad liars? Because you can see right through them!
+> Did you hear about the kidnapping at school? It's ok, he woke up.
 
 By the way, this joke is replaced by github every hour. via majik :)
