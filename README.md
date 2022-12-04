@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you ever heard of a music group called Cellophane? They mostly wrap.
+> What is bread's favorite number?  Leaven.
 
 By the way, this joke is replaced by github every hour. via majik :)
