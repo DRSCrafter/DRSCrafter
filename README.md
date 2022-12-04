@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+> What did the green grape say to the purple grape?
+BREATH!!
 
 By the way, this joke is replaced by github every hour. via majik :)
