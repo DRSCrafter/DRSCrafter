@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+> Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
 
 By the way, this joke is replaced by github every hour. via majik :)
