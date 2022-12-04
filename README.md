@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Pavlov's beard so soft?  Because he conditioned it.
+>  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+
+
 
 By the way, this joke is replaced by github every hour. via majik :)
