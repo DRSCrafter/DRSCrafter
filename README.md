@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+> Why was it called the dark ages? Because of all the knights. 
 
 By the way, this joke is replaced by github every hour. via majik :)
