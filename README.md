@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was it called the dark ages? Because of all the knights. 
+> What do you do when you see a space man?
+Park your car, man.
 
 By the way, this joke is replaced by github every hour. via majik :)
