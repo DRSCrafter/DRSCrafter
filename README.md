@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Without geometry life is pointless.
+> Why can't a bicycle stand on its own? It's two-tired.
 
 By the way, this joke is replaced by github every hour. via majik :)
