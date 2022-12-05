@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What does a pirate pay for his corn? A buccaneer!
+> Never Trust Someone With Graph Paper...
+
+They're always plotting something.
 
 By the way, this joke is replaced by github every hour. via majik :)
