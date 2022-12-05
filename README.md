@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a boomerang that won't come back? A stick.
+> How does Darth Vader like his toast? On the dark side.
 
 By the way, this joke is replaced by github every hour. via majik :)
