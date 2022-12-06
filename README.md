@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the tomato blush? Because it saw the salad dressing.
+> Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
 
 By the way, this joke is replaced by github every hour. via majik :)
