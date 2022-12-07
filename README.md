@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do prisoners use to call each other? Cell phones.
+> Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
 
 By the way, this joke is replaced by github every hour. via majik :)
