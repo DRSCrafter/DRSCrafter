@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+> What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
 
 By the way, this joke is replaced by github every hour. via majik :)
