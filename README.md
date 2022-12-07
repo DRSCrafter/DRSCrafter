@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m reading a book on the history of glue – can’t put it down.
+> What kind of tree fits in your hand? A palm tree!
 
 By the way, this joke is replaced by github every hour. via majik :)
