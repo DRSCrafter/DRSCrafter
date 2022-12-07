@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A termite walks into a bar and asks “Is the bar tender here?”
+> Where’s the bin? Dad: I haven’t been anywhere!
 
 By the way, this joke is replaced by github every hour. via majik :)
