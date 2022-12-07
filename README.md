@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+> I’m reading a book on the history of glue – can’t put it down.
 
 By the way, this joke is replaced by github every hour. via majik :)
