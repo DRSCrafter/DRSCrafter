@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the cheese who saved the world? It was Legend-dairy!
+> My first time using an elevator was an uplifting experience. The second time let me down.
 
 By the way, this joke is replaced by github every hour. via majik :)
