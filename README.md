@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don't tell secrets in corn fields. Too many ears around.
+> What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
 
 By the way, this joke is replaced by github every hour. via majik :)
