@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+> What does a female snake use for support? A co-Bra!
 
 By the way, this joke is replaced by github every hour. via majik :)
