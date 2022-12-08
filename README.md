@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+> Did you hear about the cheese who saved the world? It was Legend-dairy!
 
 By the way, this joke is replaced by github every hour. via majik :)
