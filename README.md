@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do crabs never give to charity? Because they’re shellfish.
+> Which is the fastest growing city in the world? Dublin'
 
 By the way, this joke is replaced by github every hour. via majik :)
