@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+> I used to be a banker, but I lost interest.
 
 By the way, this joke is replaced by github every hour. via majik :)
