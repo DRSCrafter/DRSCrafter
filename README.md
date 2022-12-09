@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> You can't trust a ladder. It will always let you down
+> Why is there always a gate around cemeteries? Because people are always dying to get in.
 
 By the way, this joke is replaced by github every hour. via majik :)
