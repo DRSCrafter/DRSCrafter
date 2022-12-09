@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is the new Kindle screen textured to look like paper? So you feel write at home.
+> What does a female snake use for support? A co-Bra!
 
 By the way, this joke is replaced by github every hour. via majik :)
