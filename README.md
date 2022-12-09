@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+> A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+"Pop," goes the weasel.
 
 By the way, this joke is replaced by github every hour. via majik :)
