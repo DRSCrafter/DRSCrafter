@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What does an angry pepper do? It gets jalapeño face.
+> Is the pool safe for diving? It deep ends.
 
 By the way, this joke is replaced by github every hour. via majik :)
