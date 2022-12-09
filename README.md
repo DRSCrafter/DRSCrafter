@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is there always a gate around cemeteries? Because people are always dying to get in.
+> What does an angry pepper do? It gets jalapeño face.
 
 By the way, this joke is replaced by github every hour. via majik :)
