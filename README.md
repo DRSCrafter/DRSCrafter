@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Hey, dad, did you get a haircut?" "No, I got them all cut."
+> what do you call a dog that can do magic tricks? a labracadabrador
 
 By the way, this joke is replaced by github every hour. via majik :)
