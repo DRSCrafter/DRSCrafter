@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the opera singer go sailing? They wanted to hit the high Cs.
+> My first time using an elevator was an uplifting experience. The second time let me down.
 
 By the way, this joke is replaced by github every hour. via majik :)
