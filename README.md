@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My first time using an elevator was an uplifting experience. The second time let me down.
+> A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
 
 By the way, this joke is replaced by github every hour. via majik :)
