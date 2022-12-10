@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+> My first time using an elevator was an uplifting experience. The second time let me down.
 
 By the way, this joke is replaced by github every hour. via majik :)
