@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> A farmer had 297 cows, when he rounded them up, he found he had 300
 
 By the way, this joke is replaced by github every hour. via majik :)
