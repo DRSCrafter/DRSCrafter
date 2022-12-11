@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> If two vegans are having an argument, is it still considered beef?
+> They're making a movie about clocks. It's about time
 
 By the way, this joke is replaced by github every hour. via majik :)
