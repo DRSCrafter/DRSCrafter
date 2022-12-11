@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I met this girl on a dating site and, I don't know, we just clicked.
+> What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
 
 By the way, this joke is replaced by github every hour. via majik :)
