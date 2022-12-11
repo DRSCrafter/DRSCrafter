@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do young cows eat lunch? In the calf-ateria.
+> What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
 
 By the way, this joke is replaced by github every hour. via majik :)
