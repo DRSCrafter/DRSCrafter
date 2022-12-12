@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the ocean say to the shore? Nothing, it just waved.
+> I met this girl on a dating site and, I don't know, we just clicked.
 
 By the way, this joke is replaced by github every hour. via majik :)
