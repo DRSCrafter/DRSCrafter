@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+> My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
 
 By the way, this joke is replaced by github every hour. via majik :)
