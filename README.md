@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the ocean say to the shore? Nothing, it just waved.
+> Why couldn't the lifeguard save the hippie? He was too far out, man.
 
 By the way, this joke is replaced by github every hour. via majik :)
