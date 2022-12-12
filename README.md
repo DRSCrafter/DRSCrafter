@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My son is studying to be a surgeon, I just hope he makes the cut.
+> I’m on a whiskey diet. I’ve lost three days already.
 
 By the way, this joke is replaced by github every hour. via majik :)
