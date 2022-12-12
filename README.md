@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m on a whiskey diet. I’ve lost three days already.
+> I just broke my guitar. It's okay, I won't fret
 
 By the way, this joke is replaced by github every hour. via majik :)
