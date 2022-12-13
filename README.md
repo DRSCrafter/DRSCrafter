@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> *Reversing the car* "Ah, this takes me back"
+> Sore throats are a pain in the neck!
 
 By the way, this joke is replaced by github every hour. via majik :)
