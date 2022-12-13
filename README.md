@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+> What’s the advantage of living in Switzerland? Well, the flag is a big plus.
 
 By the way, this joke is replaced by github every hour. via majik :)
