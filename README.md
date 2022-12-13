@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+> Breaking news! Energizer Bunny arrested – charged with battery.
 
 By the way, this joke is replaced by github every hour. via majik :)
