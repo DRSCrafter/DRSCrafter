@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you know crocodiles could grow up to 15 feet? But most just have 4.
+> What did one plate say to the other plate? Dinner is on me!
 
 By the way, this joke is replaced by github every hour. via majik :)
