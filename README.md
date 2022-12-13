@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+> Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
 
 By the way, this joke is replaced by github every hour. via majik :)
