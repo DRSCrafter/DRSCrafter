@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does Superman get invited to dinners? Because he is a Supperhero.
+> I got an A on my origami assignment when I turned my paper into my teacher
 
 By the way, this joke is replaced by github every hour. via majik :)
