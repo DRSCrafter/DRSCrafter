@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+> I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
 
 By the way, this joke is replaced by github every hour. via majik :)
