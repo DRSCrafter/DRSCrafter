@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+> A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
 
 By the way, this joke is replaced by github every hour. via majik :)
