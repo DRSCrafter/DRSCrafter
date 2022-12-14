@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where’s the bin? Dad: I haven’t been anywhere!
+> When does a joke become a dad joke? When it becomes apparent.
 
 By the way, this joke is replaced by github every hour. via majik :)
