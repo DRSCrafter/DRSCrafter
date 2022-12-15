@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I just got fired from a florist, apparently I took too many leaves.
+> Why did the girl smear peanut butter on the road? To go with the traffic jam.
 
 By the way, this joke is replaced by github every hour. via majik :)
