@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+> Did you hear about the campsite that got visited by Bigfoot? It got in tents.
 
 By the way, this joke is replaced by github every hour. via majik :)
