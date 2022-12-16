@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A bartender broke up with her boyfriend, but he kept asking her for another shot.
+> What's large, grey, and doesn't matter?
+An irrelephant.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
