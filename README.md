@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the digital clock say to the grandfather clock? Look, no hands!
+> Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
 
 By the way, this joke is replaced by github every hour. via majik :)
