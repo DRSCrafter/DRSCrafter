@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's large, grey, and doesn't matter?
-An irrelephant.
-
+> My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
 
 By the way, this joke is replaced by github every hour. via majik :)
