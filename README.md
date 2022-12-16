@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> It's only a murder of crows if there's probable caws.
+> How do you know if there’s an elephant under your bed? Your head hits the ceiling!
 
 By the way, this joke is replaced by github every hour. via majik :)
