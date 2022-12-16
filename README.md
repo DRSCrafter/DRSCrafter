@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+> It's only a murder of crows if there's probable caws.
 
 By the way, this joke is replaced by github every hour. via majik :)
