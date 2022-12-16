@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> This furniture store keeps emailing me, all I wanted was one night stand!
+> Why are fish so smart? Because they live in schools!
 
 By the way, this joke is replaced by github every hour. via majik :)
