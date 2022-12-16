@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people say that I never got over my obsession with Phil Collins.
-But take a look at me now.
+> What's red and bad for your teeth? A Brick.
 
 By the way, this joke is replaced by github every hour. via majik :)
