@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you get two whales in a car? Start in England and drive West.
+> Egyptians claimed to invent the guitar, but they were such lyres.﻿
 
 By the way, this joke is replaced by github every hour. via majik :)
