@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Q: What did the spaghetti say to the other spaghetti?
-A: Pasta la vista, baby!
+> I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
 
 By the way, this joke is replaced by github every hour. via majik :)
