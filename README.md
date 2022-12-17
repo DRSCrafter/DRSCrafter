@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Egyptians claimed to invent the guitar, but they were such lyres.﻿
+> A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
 
 By the way, this joke is replaced by github every hour. via majik :)
