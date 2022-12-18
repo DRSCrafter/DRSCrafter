@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many apples grow on a tree? All of them!
+> Why did the belt go to prison? He held up a pair of pants!
 
 By the way, this joke is replaced by github every hour. via majik :)
