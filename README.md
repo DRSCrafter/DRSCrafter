@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was it called the dark ages? Because of all the knights. 
+> I've just written a song about a tortilla. Well, it is more of a rap really.
 
 By the way, this joke is replaced by github every hour. via majik :)
