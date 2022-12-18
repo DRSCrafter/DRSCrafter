@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+> Why did the cookie cry?
+Because his mother was a wafer so long
 
 By the way, this joke is replaced by github every hour. via majik :)
