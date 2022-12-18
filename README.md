@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the dog say to the two trees? Bark bark.
+> How does a scientist freshen their breath? With experi-mints!
 
 By the way, this joke is replaced by github every hour. via majik :)
