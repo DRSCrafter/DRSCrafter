@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Past, present, and future walked into a bar.... It was tense.
+> What did the late tomato say to the early tomato? I’ll ketch up
 
 By the way, this joke is replaced by github every hour. via majik :)
