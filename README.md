@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the worst part about being a cross-eyed teacher?
-
-They can't control their pupils.
+> In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
 
 By the way, this joke is replaced by github every hour. via majik :)
