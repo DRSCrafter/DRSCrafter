@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of award did the dentist receive? A little plaque.
+> What's the worst part about being a cross-eyed teacher?
+
+They can't control their pupils.
 
 By the way, this joke is replaced by github every hour. via majik :)
