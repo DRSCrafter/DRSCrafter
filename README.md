@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
 
 By the way, this joke is replaced by github every hour. via majik :)
