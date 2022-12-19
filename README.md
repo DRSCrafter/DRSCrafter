@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+> Coffee has a tough time at my house, every morning it gets mugged.
 
 By the way, this joke is replaced by github every hour. via majik :)
