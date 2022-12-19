@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+> Want to hear my pizza joke? Never mind, it's too cheesy.
 
 By the way, this joke is replaced by github every hour. via majik :)
