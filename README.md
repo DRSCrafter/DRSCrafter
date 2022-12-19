@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+> Geology rocks, but Geography is where it's at!
 
 By the way, this joke is replaced by github every hour. via majik :)
