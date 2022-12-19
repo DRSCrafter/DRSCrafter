@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The first time I got a universal remote control I thought to myself, "This changes everything"
+> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
 
 By the way, this joke is replaced by github every hour. via majik :)
