@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where does batman go to the bathroom? The batroom.
+> A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
 
 By the way, this joke is replaced by github every hour. via majik :)
