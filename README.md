@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+> I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
 
 By the way, this joke is replaced by github every hour. via majik :)
