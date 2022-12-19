@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+> A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+"Pop," goes the weasel.
 
 By the way, this joke is replaced by github every hour. via majik :)
