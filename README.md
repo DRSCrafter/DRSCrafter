@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the man run around his bed? Because he was trying to catch up on his sleep!
+> Did you hear about the kidnapping at school? It's ok, he woke up.
 
 By the way, this joke is replaced by github every hour. via majik :)
