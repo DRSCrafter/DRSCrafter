@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Never Trust Someone With Graph Paper...
-
-They're always plotting something.
+> What’s Forest Gump’s Facebook password? 1forest1
 
 By the way, this joke is replaced by github every hour. via majik :)
