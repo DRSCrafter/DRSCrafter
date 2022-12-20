@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+> A farmer had 297 cows, when he rounded them up, he found he had 300
 
 By the way, this joke is replaced by github every hour. via majik :)
