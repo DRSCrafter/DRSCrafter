@@ -61,10 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
-
-“Sure thing” the bartender replies and asks “but what’s with the big pause?” 
-
-The panda holds up his hands and says “I was born with them”
+> Doctor: Do you want to hear the good news or the bad news?
+Patient: Good news please.
+Doctor: we're naming a disease after you.
 
 By the way, this joke is replaced by github every hour. via majik :)
