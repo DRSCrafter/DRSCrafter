@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+> You can't trust a ladder. It will always let you down
 
 By the way, this joke is replaced by github every hour. via majik :)
