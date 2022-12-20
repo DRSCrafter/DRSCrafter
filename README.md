@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+> Why did the tomato blush? Because it saw the salad dressing.
 
 By the way, this joke is replaced by github every hour. via majik :)
