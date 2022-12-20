@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+> A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
 
 By the way, this joke is replaced by github every hour. via majik :)
