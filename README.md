@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> ‘Put the cat out’ … ‘I didn’t realize it was on fire
+> There's not really any training for garbagemen. They just pick things up as they go.
 
 By the way, this joke is replaced by github every hour. via majik :)
