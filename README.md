@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+> I am terrified of elevators. I’m going to start taking steps to avoid them.
 
 By the way, this joke is replaced by github every hour. via majik :)
