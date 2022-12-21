@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is the tallest building in the world? The library – it’s got the most stories!
+> How do you get a baby alien to sleep?  You rocket.
 
 By the way, this joke is replaced by github every hour. via majik :)
