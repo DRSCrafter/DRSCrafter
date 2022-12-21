@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How many seconds are in a year?
-12.
-January 2nd, February 2nd, March 2nd, April 2nd.... etc
+> Every night at 11:11, I make a wish that someone will come fix my broken clock.
 
 By the way, this joke is replaced by github every hour. via majik :)
