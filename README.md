@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I was thinking about moving to Moscow but there is no point Russian into things.
+> Did you hear about the cheese who saved the world? It was Legend-dairy!
 
 By the way, this joke is replaced by github every hour. via majik :)
