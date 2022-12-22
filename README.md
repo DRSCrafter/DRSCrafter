@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a pig that knows karate? A pork chop!
+> I ate a clock yesterday. It was so time consuming.
 
 By the way, this joke is replaced by github every hour. via majik :)
