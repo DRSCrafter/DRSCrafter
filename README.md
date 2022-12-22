@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My pet mouse 'Elvis' died last night. He was caught in a trap..
+> What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
 
 By the way, this joke is replaced by github every hour. via majik :)
