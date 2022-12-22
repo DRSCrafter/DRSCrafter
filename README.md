@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> To be Frank, I'd have to change my name.
+> What kind of pants do ghosts wear? Boo jeans.
 
 By the way, this joke is replaced by github every hour. via majik :)
