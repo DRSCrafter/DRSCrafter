@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the best thing about elevator jokes? They work on so many levels.
+> Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
 
 By the way, this joke is replaced by github every hour. via majik :)
