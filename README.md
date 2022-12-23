@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do prisoners use to call each other? Cell phones.
+> People who don't eat gluten are really going against the grain.
 
 By the way, this joke is replaced by github every hour. via majik :)
