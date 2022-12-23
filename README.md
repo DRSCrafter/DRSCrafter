@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+> Why did the man put his money in the freezer? He wanted cold hard cash!
 
 By the way, this joke is replaced by github every hour. via majik :)
