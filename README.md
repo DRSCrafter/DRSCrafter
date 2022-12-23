@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call your friend who stands in a hole? Phil.
+> I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
 
 By the way, this joke is replaced by github every hour. via majik :)
