@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+> What's blue and not very heavy?  Light blue.
 
 By the way, this joke is replaced by github every hour. via majik :)
