@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
-I have no words to describe how angry I am.
+> What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
 
 By the way, this joke is replaced by github every hour. via majik :)
