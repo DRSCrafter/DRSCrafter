@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Don't tell secrets in corn fields. Too many ears around.
+> I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+
+So, I got a job at a travel agency.  Now, I know I'll be going places.
 
 By the way, this joke is replaced by github every hour. via majik :)
