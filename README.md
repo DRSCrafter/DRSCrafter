@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "I'm sorry." "Hi sorry, I'm dad"
+> What do you call your friend who stands in a hole? Phil.
 
 By the way, this joke is replaced by github every hour. via majik :)
