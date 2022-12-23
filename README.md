@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+> Why can't you use "Beef stew" as a password? Because it's not stroganoff.
 
 By the way, this joke is replaced by github every hour. via majik :)
