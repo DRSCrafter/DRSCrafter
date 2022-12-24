@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the kidnapping at school? It's ok, he woke up.
+> Why is it so windy inside an arena? All those fans.
 
 By the way, this joke is replaced by github every hour. via majik :)
