@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> To be Frank, I'd have to change my name.
+> A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
 
 By the way, this joke is replaced by github every hour. via majik :)
