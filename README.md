@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do vegetarian zombies eat? Grrrrrainnnnnssss.
+> When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
 
 By the way, this joke is replaced by github every hour. via majik :)
