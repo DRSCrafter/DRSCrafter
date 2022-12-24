@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+> My son is studying to be a surgeon, I just hope he makes the cut.
 
 By the way, this joke is replaced by github every hour. via majik :)
