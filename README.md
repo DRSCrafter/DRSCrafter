@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+> Why did the house go to the doctor? It was having window panes.
 
 By the way, this joke is replaced by github every hour. via majik :)
