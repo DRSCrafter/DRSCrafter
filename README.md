@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of tree fits in your hand? A palm tree!
+> What did the green grape say to the purple grape?
+BREATH!!
 
 By the way, this joke is replaced by github every hour. via majik :)
