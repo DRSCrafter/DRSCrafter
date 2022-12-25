@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Dad, can you put my shoes on? I don't think they'll fit me.
+> What kind of tree fits in your hand? A palm tree!
 
 By the way, this joke is replaced by github every hour. via majik :)
