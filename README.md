@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+> Where do cats write notes?
+Scratch Paper!
 
 By the way, this joke is replaced by github every hour. via majik :)
