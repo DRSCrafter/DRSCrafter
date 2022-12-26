@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How does a scientist freshen their breath? With experi-mints!
+> Why was the robot angry? Because someone kept pressing his buttons!
 
 By the way, this joke is replaced by github every hour. via majik :)
