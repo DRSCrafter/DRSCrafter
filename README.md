@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was the robot angry? Because someone kept pressing his buttons!
+> There's not really any training for garbagemen. They just pick things up as they go.
 
 By the way, this joke is replaced by github every hour. via majik :)
