@@ -61,7 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do cats write notes?
-Scratch Paper!
+> Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+
 
 By the way, this joke is replaced by github every hour. via majik :)
