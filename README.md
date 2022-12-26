@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> There's not really any training for garbagemen. They just pick things up as they go.
+> Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
 
 By the way, this joke is replaced by github every hour. via majik :)
