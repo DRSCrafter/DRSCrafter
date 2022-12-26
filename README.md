@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the tree go to the dentist? It needed a root canal.
+> I got a reversible jacket for Christmas, I can't wait to see how it turns out.
 
 By the way, this joke is replaced by github every hour. via majik :)
