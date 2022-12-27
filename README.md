@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the grape do when he got stepped on? He let out a little wine.
+> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
 
 By the way, this joke is replaced by github every hour. via majik :)
