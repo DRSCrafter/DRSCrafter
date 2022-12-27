@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Want to hear my pizza joke? Never mind, it's too cheesy.
+> What do you call a guy lying on your doorstep? Matt.
 
 By the way, this joke is replaced by github every hour. via majik :)
