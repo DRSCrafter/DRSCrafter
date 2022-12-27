@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+> I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
 
 By the way, this joke is replaced by github every hour. via majik :)
