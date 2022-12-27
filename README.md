@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The shovel was a ground-breaking invention.
+> What do you get hanging from Apple trees? Sore arms.
 
 By the way, this joke is replaced by github every hour. via majik :)
