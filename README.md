@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Doctor: Do you want to hear the good news or the bad news?
-Patient: Good news please.
-Doctor: we're naming a disease after you.
+> My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
 
 By the way, this joke is replaced by github every hour. via majik :)
