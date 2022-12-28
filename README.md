@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What creature is smarter than a talking parrot? A spelling bee.
+> "Hey, dad, did you get a haircut?" "No, I got them all cut."
 
 By the way, this joke is replaced by github every hour. via majik :)
