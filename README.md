@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> "Hey, dad, did you get a haircut?" "No, I got them all cut."
+> What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
 
 By the way, this joke is replaced by github every hour. via majik :)
