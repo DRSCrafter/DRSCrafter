@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+> I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
 
 By the way, this joke is replaced by github every hour. via majik :)
