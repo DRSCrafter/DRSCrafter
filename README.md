@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Where do hamburgers go to dance? The meat-ball.
+> What is the hardest part about sky diving? The ground.
 
 By the way, this joke is replaced by github every hour. via majik :)
