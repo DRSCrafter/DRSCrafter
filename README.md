@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What is a vampire's favorite fruit? A blood orange.
+> I just wrote a book on reverse psychology. Do not read it!
 
 By the way, this joke is replaced by github every hour. via majik :)
