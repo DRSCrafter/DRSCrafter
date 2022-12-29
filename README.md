@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+> Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
 
 By the way, this joke is replaced by github every hour. via majik :)
