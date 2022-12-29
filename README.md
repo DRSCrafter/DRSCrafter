@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+> The invention of the wheel was what got things rolling
 
 By the way, this joke is replaced by github every hour. via majik :)
