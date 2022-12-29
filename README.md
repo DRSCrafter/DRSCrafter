@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What's the best thing about elevator jokes? They work on so many levels.
+> People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
 
 By the way, this joke is replaced by github every hour. via majik :)
