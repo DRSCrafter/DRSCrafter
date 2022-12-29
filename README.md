@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+> My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
 
 By the way, this joke is replaced by github every hour. via majik :)
