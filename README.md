@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+> Did you hear about the campsite that got visited by Bigfoot? It got in tents.
 
 By the way, this joke is replaced by github every hour. via majik :)
