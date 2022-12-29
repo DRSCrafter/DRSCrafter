@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+> Remember, the best angle to approach a problem from is the "try" angle.
 
 By the way, this joke is replaced by github every hour. via majik :)
