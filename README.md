@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the cookie cry?
-Because his mother was a wafer so long
+> Why did the burglar hang his mugshot on the wall? To prove that he was framed!
 
 By the way, this joke is replaced by github every hour. via majik :)
