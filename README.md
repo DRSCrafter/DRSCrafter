@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+> Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
 
 By the way, this joke is replaced by github every hour. via majik :)
