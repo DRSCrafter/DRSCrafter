@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+> How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
 
 By the way, this joke is replaced by github every hour. via majik :)
