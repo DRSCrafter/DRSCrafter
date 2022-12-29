@@ -61,8 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What was the pumpkin’s favorite sport?
-
-Squash.
+> I wouldn't buy anything with velcro. It's a total rip-off.
 
 By the way, this joke is replaced by github every hour. via majik :)
