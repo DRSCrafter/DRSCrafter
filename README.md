@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do I look like? A JOKE MACHINE!?
+> Why do bears have hairy coats? Fur protection.
 
 By the way, this joke is replaced by github every hour. via majik :)
