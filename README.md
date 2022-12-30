@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I asked a frenchman if he played video games. He said "Wii"
+> Conjunctivitis.com – now that’s a site for sore eyes.
 
 By the way, this joke is replaced by github every hour. via majik :)
