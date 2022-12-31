@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of tree fits in your hand? A palm tree!
+> As I suspected, someone has been adding soil to my garden. The plot thickens.
 
 By the way, this joke is replaced by github every hour. via majik :)
