@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+> Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
 
 By the way, this joke is replaced by github every hour. via majik :)
