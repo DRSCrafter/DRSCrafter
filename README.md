@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you get when you cross a snowman with a vampire? Frostbite.
+> Why do wizards clean their teeth three times a day? To prevent bat breath!
 
 By the way, this joke is replaced by github every hour. via majik :)
