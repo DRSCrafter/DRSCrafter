@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> As I suspected, someone has been adding soil to my garden. The plot thickens.
+> Where’s the bin? Dad: I haven’t been anywhere!
 
 By the way, this joke is replaced by github every hour. via majik :)
