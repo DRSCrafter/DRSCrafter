@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a bear with no teeth? A gummy bear!
+> Some people eat light bulbs. They say it's a nice light snack.
 
 By the way, this joke is replaced by github every hour. via majik :)
