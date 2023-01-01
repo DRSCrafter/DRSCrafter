@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+> Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
 
 By the way, this joke is replaced by github every hour. via majik :)
