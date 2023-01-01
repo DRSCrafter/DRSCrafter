@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I’m on a whiskey diet. I’ve lost three days already.
+> A cannibal is someone who is fed up with people.
 
 By the way, this joke is replaced by github every hour. via majik :)
