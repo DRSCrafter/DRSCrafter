@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+> Coffee has a tough time at my house, every morning it gets mugged.
 
 By the way, this joke is replaced by github every hour. via majik :)
