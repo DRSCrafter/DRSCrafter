@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Some people eat light bulbs. They say it's a nice light snack.
+> A man tried to sell me a coffin today. I told him that's the last thing I need.
 
 By the way, this joke is replaced by github every hour. via majik :)
