@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How was the snow globe feeling after the storm? A little shaken.
+> What do you call a droid that takes the long way around? R2 detour.
 
 By the way, this joke is replaced by github every hour. via majik :)
