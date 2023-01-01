@@ -61,6 +61,8 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A cannibal is someone who is fed up with people.
+> What was the pumpkin’s favorite sport?
+
+Squash.
 
 By the way, this joke is replaced by github every hour. via majik :)
