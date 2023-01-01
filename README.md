@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My boss told me to attach two pieces of wood together... I totally nailed it!
+> I’m on a whiskey diet. I’ve lost three days already.
 
 By the way, this joke is replaced by github every hour. via majik :)
