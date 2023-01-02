@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+> Every night at 11:11, I make a wish that someone will come fix my broken clock.
 
 By the way, this joke is replaced by github every hour. via majik :)
