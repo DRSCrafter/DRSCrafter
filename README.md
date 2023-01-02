@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+> What do you call a boomerang that won't come back? A stick.
 
 By the way, this joke is replaced by github every hour. via majik :)
