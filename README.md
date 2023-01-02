@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+> What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
 
 By the way, this joke is replaced by github every hour. via majik :)
