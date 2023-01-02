@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My first time using an elevator was an uplifting experience. The second time let me down.
+> What happens when you anger a brain surgeon? They will give you a piece of your mind.
 
 By the way, this joke is replaced by github every hour. via majik :)
