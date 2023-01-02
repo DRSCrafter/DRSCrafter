@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What has three letters and starts with gas? A Car.
+> What is the leading cause of dry skin? Towels
 
 By the way, this joke is replaced by github every hour. via majik :)
