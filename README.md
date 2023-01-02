@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+> A magician was driving down the street and then he turned into a driveway.
 
 By the way, this joke is replaced by github every hour. via majik :)
