@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A magician was driving down the street and then he turned into a driveway.
+> What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
 
 By the way, this joke is replaced by github every hour. via majik :)
