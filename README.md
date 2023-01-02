@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> You know that cemetery up the road? People are dying to get in there.
+> What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
 
 By the way, this joke is replaced by github every hour. via majik :)
