@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+> I ordered a chicken and an egg from Amazon. I'll let you know.
 
 By the way, this joke is replaced by github every hour. via majik :)
