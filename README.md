@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Chances are if you' ve seen one shopping center, you've seen a mall.
+> If at first you don't succeed, sky diving is not for you!
 
 By the way, this joke is replaced by github every hour. via majik :)
