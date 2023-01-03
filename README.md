@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why did the half blind man fall in the well? Because he couldn't see that well!
+> Chances are if you' ve seen one shopping center, you've seen a mall.
 
 By the way, this joke is replaced by github every hour. via majik :)
