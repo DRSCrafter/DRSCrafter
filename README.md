@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> How do locomotives know where they're going? Lots of training
+> I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
 
 By the way, this joke is replaced by github every hour. via majik :)
