@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+> I am so good at sleeping I can do it with my eyes closed!
 
 By the way, this joke is replaced by github every hour. via majik :)
