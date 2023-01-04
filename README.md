@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What lies at the bottom of the ocean and twitches? A nervous wreck.
+> What do you call a beehive without the b's? An eehive.
 
 By the way, this joke is replaced by github every hour. via majik :)
