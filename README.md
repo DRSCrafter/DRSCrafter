@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do wizards clean their teeth three times a day? To prevent bat breath!
+> How do locomotives know where they're going? Lots of training
 
 By the way, this joke is replaced by github every hour. via majik :)
