@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why is Peter Pan always flying? Because he Neverlands.
+> Why is no one friends with Dracula? Because he's a pain in the neck.
 
 By the way, this joke is replaced by github every hour. via majik :)
