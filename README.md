@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What do you call a beehive without the b's? An eehive.
+> A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
 
 By the way, this joke is replaced by github every hour. via majik :)
