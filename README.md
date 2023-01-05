@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+> What do you call a group of killer whales playing instruments? An Orca-stra.
 
 By the way, this joke is replaced by github every hour. via majik :)
