@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why didn’t the skeleton cross the road? Because he had no guts.
+> Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
 
 By the way, this joke is replaced by github every hour. via majik :)
