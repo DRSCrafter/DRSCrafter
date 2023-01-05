@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+> What did Michael Jackson name his denim store?    Billy Jeans!
 
 By the way, this joke is replaced by github every hour. via majik :)
