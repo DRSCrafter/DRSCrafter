@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I got fired from the transmission factor, turns out I didn't put on enough shifts...
+> What did the dog say to the two trees? Bark bark.
 
 By the way, this joke is replaced by github every hour. via majik :)
