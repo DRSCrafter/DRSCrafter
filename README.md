@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+> Where do you learn to make banana splits? At sundae school.
 
 By the way, this joke is replaced by github every hour. via majik :)
