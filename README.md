@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+> What do you call a girl between two posts? Annette.
 
 By the way, this joke is replaced by github every hour. via majik :)
