@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why do you never see elephants hiding in trees? Because they're so good at it.
+> Why did the house go to the doctor? It was having window panes.
 
 By the way, this joke is replaced by github every hour. via majik :)
