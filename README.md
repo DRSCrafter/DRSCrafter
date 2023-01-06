@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> What did the big flower say to the littler flower? Hi, bud!
+> I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
 
 By the way, this joke is replaced by github every hour. via majik :)
