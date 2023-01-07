@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why was Pavlov's beard so soft?  Because he conditioned it.
+> What do you call a cow with no legs? Ground beef.
 
 By the way, this joke is replaced by github every hour. via majik :)
