@@ -61,7 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why don't you find hippopotamuses hiding in trees?
-They're really good at it.
+> Have you heard of the band 1023MB? They haven't got a gig yet.
 
 By the way, this joke is replaced by github every hour. via majik :)
