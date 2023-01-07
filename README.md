@@ -61,6 +61,7 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+> Why don't you find hippopotamuses hiding in trees?
+They're really good at it.
 
 By the way, this joke is replaced by github every hour. via majik :)
