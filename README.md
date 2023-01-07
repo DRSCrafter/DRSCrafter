@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Why are skeletons so calm? Because nothing gets under their skin.
+> What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
 
 By the way, this joke is replaced by github every hour. via majik :)
