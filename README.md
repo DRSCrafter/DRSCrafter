@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+> Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
 
 By the way, this joke is replaced by github every hour. via majik :)
