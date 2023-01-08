@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+> The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
 
 By the way, this joke is replaced by github every hour. via majik :)
