@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+> Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
 
 By the way, this joke is replaced by github every hour. via majik :)
