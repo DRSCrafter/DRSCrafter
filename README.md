@@ -61,6 +61,6 @@ Let's have a talk sometime 😊
 
 Have a laugh before you go!
 
-> Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+> Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
 
 By the way, this joke is replaced by github every hour. via majik :)
