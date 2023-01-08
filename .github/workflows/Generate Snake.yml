@@ -9,7 +9,6 @@ jobs:
     runs-on: ubuntu-latest
     steps:
       - uses: Platane/snk@master@v1.1.0
-        id: snake-gif
         with:
           github_user_name: DRSCrafter
           svg_out_path: dist/github-contribution-grid-snake.svg
