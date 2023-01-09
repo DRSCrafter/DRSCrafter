@@ -1,4 +1,4 @@
-![Snake animation](https://github.com/DRSCrafter/DRSCrafter/blob/output/github-contribution-grid-snake.svg)
+<img src="./assets/contr.svg#gh-dark-mode-only" width="100%"/>
 
 <br>
 
