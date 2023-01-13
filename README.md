@@ -1,10 +1,10 @@
-<img src="./assets/contr.svg#gh-dark-mode-only" width="100%"/>
+![Snake animation](https://github.com/DRSCrafter/DRSCrafter/blob/output/github-contribution-grid-snake.svg)
 
 <br>
 
 <h1><img src="./assets/hand.gif" width="50"/> G’day, fellow geeks</h1>
 
-I’m Mohammad Reza, a junior MERN stack developer, dedicated coder and self-proclaimed designer who specializes in front-end development. My goal is to create websites and apps with next-gen design that is absolutely outstanding.
+I’m Mohammad Reza, a junior MERN stack developer, dedicated coder and self-proclaimed designer who specializes in front-end development. My goal is to create websites and apps with next-gen design that absolutely stands out.
 <br>
 I'm currently studying at the Ferdowsi University of Mashhad in Computer Engineering field.
 
@@ -17,6 +17,7 @@ Tech Vault
 ![](https://img.shields.io/badge/JavaScript-323330?style=for-the-badge&logo=javascript&logoColor=F7DF1E)
 ![](https://img.shields.io/badge/TypeScript-007ACC?style=for-the-badge&logo=typescript&logoColor=white)
 ![](https://img.shields.io/badge/React-20232A?style=for-the-badge&logo=react&logoColor=61DAFB)
+![](https://img.shields.io/badge/Redux-593D88?style=for-the-badge&logo=redux&logoColor=white)
 ![](https://img.shields.io/badge/Material%20UI-007FFF?style=for-the-badge&logo=mui&logoColor=white)
 ![](https://img.shields.io/badge/Node.js-339933?style=for-the-badge&logo=nodedotjs&logoColor=white)
 ![](https://img.shields.io/badge/Express.js-000000?style=for-the-badge&logo=express&logoColor=white)
@@ -27,6 +28,7 @@ Tech Vault
 Also kinda familiar with
 
 ![](https://img.shields.io/badge/C-00599C?style=for-the-badge&logo=c&logoColor=white)
+![](https://img.shields.io/badge/C%2B%2B-00599C?style=for-the-badge&logo=c%2B%2B&logoColor=white)
 ![](https://img.shields.io/badge/Java-ED8B00?style=for-the-badge&logo=java&logoColor=white)
 ![](https://img.shields.io/badge/React_Native-20232A?style=for-the-badge&logo=react&logoColor=61DAFB)
 
@@ -40,6 +42,7 @@ Design Vault
 <br>
 
 <h3>Statistics</h3>
+<div align="center">
 
 ![](https://github-profile-trophy.vercel.app/?username=DRSCrafter&theme=dracula&rank=SECRET,SSS,SS,S,AAA,AA,A,B,C&margin-w=15&count_private=true)
 
@@ -47,6 +50,8 @@ Design Vault
 ![](https://github-readme-stats.vercel.app/api?username=DRSCrafter&show_icons=true&theme=dracula&count_private=true)
 
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=DRSCrafter&layout=compact&theme=dracula&custom_title=Languages&card_width=445&langs_count=6)
+
+</div>
 
 
 <br>
