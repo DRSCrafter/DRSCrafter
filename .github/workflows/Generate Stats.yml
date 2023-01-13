@@ -1,7 +1,8 @@
-name: "generate-snake-game-from-github-contribution-grid"
-description: "Generates a snake game from a github user contributions grid. Output the animation as gif or svg"
-author: "platane"
-
+name: Generate Stats
+on:
+  schedule:
+    - cron: "0 */12 * * *"
+  workflow_dispatch:
 runs:
   using: docker
   image: docker://platane/snk@sha256:dcb351bdad223f2a2161fa5d6e3c9102e6ebe9fbde99a10fa3bf443d69f61a0f
