@@ -62,7 +62,7 @@ Design Vault
 
 <div align="center">
 
-![](https://github-readme-stats-drscrafter.vercel.app/?username=DRSCrafter&theme=dracula&rank=SECRET,SSS,SS,S,AAA,AA,A,B,C&margin-w=15&count_private=true)
+![](https://github-profile-trophy.vercel.app/?username=DRSCrafter&theme=dracula&rank=SECRET,SSS,SS,S,AAA,AA,A,B,C&margin-w=15)
 
 <br>
 
@@ -71,7 +71,7 @@ Design Vault
 
 <br>
 
-![](https://github-readme-stats-drscrafter.vercel.app/api/top-langs/?username=DRSCrafter&layout=compact&theme=dracula&custom_title=Languages&card_width=445&langs_count=6)
+![](https://github-readme-stats-drscrafter.vercel.app/api/top-langs/?username=DRSCrafter&layout=compact&theme=dracula&custom_title=Languages&card_width=445&langs_count=6&count_private=true)
 
 </div>
 
