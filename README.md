@@ -1,5 +1,5 @@
 ![Snake animation](https://github.com/DRSCrafter/DRSCrafter/blob/output/github-contribution-grid-snake.svg)
-<h5 align="center" style="font-weight: normal;">Watch as GitHub Co-pilot eats all of my code :_)</h5>
+<h5 align="center" style="font-weight: normal; margin-top: -5px;">Watch as GitHub Co-pilot eats all of my code :_)</h5>
 
 <br>
 
